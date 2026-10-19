@@ -1,7 +1,7 @@
 # Package Plan: "Every Evil Arrow Returns to Sender Tonight"
 
 ## Inputs used
-- **Channel name:** Nightly Covering Prayer (placeholder until you lock in a name)
+- **Channel name:** Shielded Tonight Prayers
 - **Topic:** Every Evil Arrow Returns to Sender Tonight (video idea #1)
 - **Main focus of the warfare:** return to sender
 - **Script length:** 7,000 words, plus or minus 5% (final: 6,898 spoken words, about 48 minutes at 2.4 words per second)
@@ -42,7 +42,7 @@ Play this nightly before you sleep. Let it run while you rest for 7 nights, then
 
 Type "Returned to sender. I am covered." in the comments as your declaration of faith.
 
-➡️ Subscribe to Nightly Covering Prayer and pray with us every night. You are covered, you are seen, and this family of faith is praying beside you.
+➡️ Subscribe to Shielded Tonight Prayers and pray with us every night. You are covered, you are seen, and this family of faith is praying beside you.
 
 ### Chapters (estimated at 2.4 words per second; adjust after recording the voiceover)
 ```

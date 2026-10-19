@@ -22,7 +22,7 @@ text, letters, words, watermark, logo, signature, blue tones, cold colors, carto
 > Subject placed on the right 45% of the frame, angled slightly toward the viewer, bursting with light, sparks and energy; the left 55% of the frame fades to near-black smoky darkness and is completely empty, as negative space for text; bottom-right corner clear; high contrast, dramatic, intense.
 
 **MODE 3: THUMBNAIL ALL-IN-ONE** (only for text-capable generators such as Ideogram or GPT image)
-> Use Mode 2, then replace "no text, no letters" with: Left side bold condensed all-caps headline "[LINE 1]" in silver-white metallic with dark stroke and "[LINE 2]" in fire-gold gradient with glow, small gold flourish divider, gold condensed subline "[SUBLINE, 6–14 WORDS]", small ribbon "[CHANNEL NAME]" between gold scroll ornaments.
+> Use Mode 2, then replace "no text, no letters" with: Left side bold condensed all-caps headline "[LINE 1]" in silver-white metallic with dark stroke and "[LINE 2]" in fire-gold gradient with glow, small gold flourish divider, gold condensed subline "[SUBLINE, 6–14 WORDS]", small ribbon "SHIELDED TONIGHT PRAYERS" between gold scroll ornaments.
 
 ---
 

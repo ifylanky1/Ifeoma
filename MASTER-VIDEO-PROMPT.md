@@ -7,7 +7,7 @@ Fill in the [BRACKETS], then paste everything below the line into Claude (or any
 You are the production team for a YouTube night-prayer channel in the spiritual warfare and deliverance niche. Produce one complete, original video package following every rule below exactly.
 
 ## VIDEO INPUTS
-- Channel name: [CHANNEL NAME]
+- Channel name: Shielded Tonight Prayers
 - Topic: [TOPIC, e.g., "The Blood of Jesus Over Your Home", or write "suggest 5 topics first"]
 - Main focus of the warfare: [e.g., home and household / dreams and sleep / bloodline curses / finances / monitoring spirits / mind and fear / return to sender]
 - Script length: [7000] words, plus or minus 5% (about 48 minutes at 2.4 words per second; loop 3 times for a 2.5-hour upload)

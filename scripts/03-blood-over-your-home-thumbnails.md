@@ -2,7 +2,7 @@
 
 How to build each one: generate the background art from the prompt (the left side is left dark and empty), then add the text in Canva or Photoshop using the shared text spec. If you use a generator that renders text well (Ideogram, GPT image), use the "All-in-one" line instead.
 
-The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever channel name you choose.
+The ribbon carries the channel name, SHIELDED TONIGHT PRAYERS.
 
 ## Shared text spec (all 5)
 - **Headline font:** Anton or Oswald Bold (condensed sans), or Playfair Display SC Black for the serif variant. All caps, tight leading.
@@ -21,7 +21,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **BLOOD ON THE DOOR** (white) / **NOTHING EVIL ENTERS** (fire-gold)
   - Subline: SEAL YOUR HOME, FAMILY & SLEEP / FROM WITCHCRAFT, NIGHT ATTACKS / & EVERY EVIL VISITOR
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** protection and authority. A clear promise that the home is sealed shut.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a heavy arched dark oak front door set in an old stone wall at night, angled slightly toward the viewer, its two doorposts and lintel streaked with glowing crimson blood radiating molten gold light, a cross shape blazing white-gold through the center of the door, a lit pillar candle with dripping wax and an old open leather-bound Bible on the stone doorstep, sparks and glowing embers bursting outward, fiery cracks of light in the stone around the frame. The left 55% of the frame fades to near-black smoky darkness and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, deep crimson, fire orange and molten gold palette, intense backlight, strong chiaroscuro, heavy vignette, ultra-detailed, dramatic. No text, no letters, no logos.
 - **All-in-one (text-capable generators):** add: Left side bold condensed all-caps headline "BLOOD ON THE DOOR" in silver-white metallic and "NOTHING EVIL ENTERS" in fire-gold gradient, a small gold flourish divider, then gold subline "SEAL YOUR HOME, FAMILY & SLEEP FROM WITCHCRAFT, NIGHT ATTACKS & EVERY EVIL VISITOR".
@@ -32,7 +32,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **SEAL YOUR HOUSE** (white) / **TONIGHT** (fire-gold, largest word)
   - Subline: BY THE BLOOD OF JESUS / DOORS, WINDOWS & WALLS COVERED / AGAINST EVERY MIDNIGHT ATTACK
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** urgency ("Tonight") and safety for the whole family.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a two-story stone-and-timber family house on a dark hill at night with warm glowing windows, surrounded by a blazing ring of fire along its property line, a massive rough-hewn wooden cross glowing white-gold in a break in crimson storm clouds directly above the roof, pouring intense golden god rays onto the house, red lightning cracking through the clouds, dark smoke at the edges stopped at the wall of fire, embers swirling. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, fire orange and molten gold palette, dramatic backlight, heavy vignette, ultra-detailed. No text, no letters, no logos.
 - **All-in-one:** add: Left side headline "SEAL YOUR HOUSE" in silver-white metallic and "TONIGHT" in large fire-gold gradient, gold flourish divider, gold subline "BY THE BLOOD OF JESUS / DOORS, WINDOWS & WALLS COVERED / AGAINST EVERY MIDNIGHT ATTACK".
@@ -43,7 +43,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **EVERY ATTACK ON YOUR HOME** (white, 2 lines) / **SENT BACK BY FIRE** (fire-gold)
   - Subline: BREAK WITCHCRAFT, CURSES / & EVIL ALTARS AGAINST YOUR / HOUSE, CHILDREN & MARRIAGE
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** retaliation and justice. The attack returns to the sender.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a dark oak front door with glowing crimson blood on its doorposts and a blazing white-gold cross at its center, black smoky arrows slamming into a shield of crimson light just in front of the door and shattering into bursts of sparks, several arrows reversing direction and flying back out of the frame trailing streaks of orange fire, cracked glowing stone around the door, red lightning, flying embers. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, fire orange and molten gold palette, explosive energy, intense backlight, heavy vignette, ultra-detailed. No text, no letters, no logos.
 - **All-in-one:** add: Left side headline "EVERY ATTACK ON YOUR HOME" in silver-white metallic and "SENT BACK BY FIRE" in fire-gold gradient, gold flourish divider, gold subline "BREAK WITCHCRAFT, CURSES & EVIL ALTARS AGAINST YOUR HOUSE, CHILDREN & MARRIAGE".
@@ -54,7 +54,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **THE DESTROYER** (white) / **CANNOT ENTER** (fire-gold)
   - Subline: PASSOVER PROTECTION PRAYER / OVER YOUR HOME, CHILDREN / & SLEEP | PLAY BEFORE BED
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** fear named and then overcome. Curiosity about "the destroyer," with the promise of safety.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, an ancient-style wooden doorway at night with its side posts and lintel marked in glowing crimson blood that radiates molten gold light, a towering dark shadow of smoke with clawed edges looming just outside the threshold but recoiling and breaking apart where it touches the light, warm golden light spilling from the gap under the door, a white lamb silhouette faintly glowing on the step, sparks and embers in the air. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, ember orange and molten gold palette, dramatic tension, intense backlight, heavy vignette, ultra-detailed. No text, no letters, no logos.
 - **All-in-one:** add: Left side headline "THE DESTROYER" in silver-white metallic and "CANNOT ENTER" in fire-gold gradient, gold flourish divider, gold subline "PASSOVER PROTECTION PRAYER OVER YOUR HOME, CHILDREN & SLEEP".
@@ -65,7 +65,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **ANGELS AROUND** (white) / **YOUR HOUSE** (fire-gold)
   - Subline: CHARIOTS OF FIRE GUARD YOUR HOME / BLOCK EVERY NIGHT ATTACK / & SLEEP IN PEACE TONIGHT
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** awe and comfort. The viewer is not alone at night.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a huge glowing sword of fire planted point-down in the ground in front of a stone family house at night, immense wings made of golden flame rising behind the sword, faint horses and chariots of fire lining the dark hills behind the house, a radiant white-gold light burst at the sword's hilt, crimson storm clouds parting, embers swirling. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, fire orange and molten gold palette, majestic and powerful, intense backlight, heavy vignette, ultra-detailed. No text, no letters, no logos, no faces.
 - **All-in-one:** add: Left side headline "ANGELS AROUND" in silver-white metallic and "YOUR HOUSE" in fire-gold gradient, gold flourish divider, gold subline "CHARIOTS OF FIRE GUARD YOUR HOME / BLOCK EVERY NIGHT ATTACK / & SLEEP IN PEACE TONIGHT".

@@ -2,7 +2,7 @@
 
 How to build each one: generate the background art from the prompt (the left side is left dark and empty), then add the text in Canva or Photoshop using the shared text spec. If you use a generator that renders text well (Ideogram, GPT image), use the "All-in-one" line instead.
 
-The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever channel name you choose.
+The ribbon carries the channel name, SHIELDED TONIGHT PRAYERS.
 
 ## Shared text spec (all 5)
 - **Headline font:** Anton or Oswald Bold (condensed sans), or Playfair Display SC Black for the serif variant. All caps, tight leading.
@@ -21,7 +21,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **EVERY EVIL ARROW** (white) / **RETURN TO SENDER** (fire-gold)
   - Subline: WITCHCRAFT, CURSES & EVIL ALTARS / SENT BACK BY FIRE / PLAY THIS BEFORE YOU SLEEP
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** retaliation and justice. The attack goes back where it came from.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a tall ancient bronze shield engraved with a blazing white-gold cross, angled slightly toward the viewer, a storm of black arrows striking its face and shattering into bursts of sparks, several arrows reversing direction and flying back out of the top-left of the right half trailing streaks of orange fire, red lightning cracking behind, flying embers. The left 55% of the frame fades to near-black smoky darkness and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, fire orange and molten gold palette, explosive energy, intense backlight, strong chiaroscuro, heavy vignette, ultra-detailed. No text, no letters, no logos.
 - **All-in-one (text-capable generators):** add: Left side bold condensed all-caps headline "EVERY EVIL ARROW" in silver-white metallic and "RETURN TO SENDER" in fire-gold gradient, a small gold flourish divider, then gold subline "WITCHCRAFT, CURSES & EVIL ALTARS / SENT BACK BY FIRE / PLAY THIS BEFORE YOU SLEEP".
@@ -32,7 +32,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **NO WEAPON** (white) / **SHALL PROSPER** (fire-gold)
   - Subline: ISAIAH 54:17 NIGHT PRAYER / YOUR HOME, FAMILY & SLEEP / COVERED BY THE BLOOD OF JESUS
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** protection and authority. A familiar promise that the attack has already failed.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a tall battle-worn bronze shield standing upright on dark stone, its engraved cross glowing with molten gold light, dozens of snapped black arrows smoldering at its foot with threads of ember fire and smoke, a lit pillar candle and an open leather-bound Bible beside it, crimson smoke and god rays behind, embers drifting. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, deep crimson, fire orange and molten gold palette, dramatic backlight, heavy vignette, ultra-detailed. No text, no letters, no logos.
 - **All-in-one:** add: Left side headline "NO WEAPON" in silver-white metallic and "SHALL PROSPER" in fire-gold gradient, gold flourish divider, gold subline "ISAIAH 54:17 NIGHT PRAYER / YOUR HOME, FAMILY & SLEEP / COVERED BY THE BLOOD OF JESUS".
@@ -43,7 +43,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **EVERY ATTACK** (white) / **REVERSED TONIGHT** (fire-gold, largest word "TONIGHT")
   - Subline: BREAK NIGHT ARROWS, DREAM ATTACKS / & HIDDEN TRAPS BEFORE MORNING / PLAY BEFORE BED
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** urgency. This has to be played tonight, before sleep.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a huge ornate antique clock face glowing crimson in the dark sky with its hands at three o'clock, a rough wooden cross blazing white-gold in front of it, black smoke arrows spiralling toward the cross and turning back in a swirling ring of orange fire, crimson storm clouds, embers and sparks. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, ember orange and molten gold palette, dramatic tension, intense backlight, heavy vignette, ultra-detailed. No text, no letters, no numbers on the clock, no logos.
 - **All-in-one:** add: Left side headline "EVERY ATTACK" in silver-white metallic and "REVERSED TONIGHT" in fire-gold gradient, gold flourish divider, gold subline "BREAK NIGHT ARROWS, DREAM ATTACKS & HIDDEN TRAPS BEFORE MORNING".
@@ -54,7 +54,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **THE TRAP SET FOR YOU** (white) / **CLOSES ON DARKNESS** (fire-gold)
   - Subline: PSALM 7 RETURN TO SENDER PRAYER / EVERY PIT, NET & SETUP EXPOSED / BY THE BLOOD OF JESUS
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** named fear overcome. The hidden setup the viewer is afraid of is exposed and turned around.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, a deep jagged pit torn open in an ancient stone road at night, glowing with red fire from below, a tall dark wooden beam frame toppling and falling into the pit with snapped ropes, black smoke pouring out of the pit, while a narrow path of radiant golden light curves safely around the edge of the pit toward a glowing cross on the horizon, embers swirling. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, fire orange and molten gold palette, dramatic, intense backlight, heavy vignette, ultra-detailed. No text, no letters, no logos, no people, no figures.
 - **All-in-one:** add: Left side headline "THE TRAP SET FOR YOU" in silver-white metallic and "CLOSES ON DARKNESS" in fire-gold gradient, gold flourish divider, gold subline "PSALM 7 RETURN TO SENDER PRAYER / EVERY PIT, NET & SETUP EXPOSED / BY THE BLOOD OF JESUS".
@@ -65,7 +65,7 @@ The ribbon uses NIGHTLY COVERING PRAYER as a placeholder. Swap in whichever chan
 - **Text Overlay:**
   - Headline: **ANGELS CATCH** (white) / **EVERY ARROW** (fire-gold)
   - Subline: SLEEP UNDER GOD'S SHIELD / NOTHING SENT AGAINST YOU / CAN LAND TONIGHT
-  - Ribbon: NIGHTLY COVERING PRAYER
+  - Ribbon: SHIELDED TONIGHT PRAYERS
 - **Emotion Trigger:** awe and comfort. The viewer is guarded while they sleep.
 - **Image Prompt:** YouTube thumbnail background, 16:9. On the right 45% of the frame, immense wings made of golden flame spread wide over a small stone house with warm glowing windows on a dark hill at night, a huge flaming sword raised high between the wings, black arrows falling from the crimson clouds and bursting into harmless sparks in the air before they reach the roof, a radiant white-gold light burst at the sword's hilt, embers swirling. The left 55% of the frame fades to near-black and is completely empty, as negative space for text. High-contrast cinematic devotional digital art, painterly realism, crimson, fire orange and molten gold palette, majestic and powerful, intense backlight, heavy vignette, ultra-detailed. No text, no letters, no logos, no faces.
 - **All-in-one:** add: Left side headline "ANGELS CATCH" in silver-white metallic and "EVERY ARROW" in fire-gold gradient, gold flourish divider, gold subline "SLEEP UNDER GOD'S SHIELD / NOTHING SENT AGAINST YOU / CAN LAND TONIGHT".
