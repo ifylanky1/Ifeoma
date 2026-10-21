@@ -89,3 +89,53 @@ Type this as your declaration of faith: **Returned to sender. I am covered.** �
 
 ## Scripture list (20 verses, KJV)
 Isaiah 54:17 (chorus) · Esther 7:10 · Ephesians 6:16 · Ephesians 6:12 · Psalm 91:7 · Psalm 91:5 · Numbers 23:23 · Deuteronomy 23:5 · Psalm 7:15–16 · Proverbs 3:24 · Job 5:12 · Isaiah 54:15 · Isaiah 49:25 · Malachi 3:11 · 2 Timothy 1:7 · Isaiah 8:10 · Revelation 12:11 · Colossians 2:15 · Psalm 121:4 · Psalm 4:8
+
+## 25-minute upload (Hook to Wave 11)
+First upload, cut at the end of Wave 11. If you add Part 7 (The Quiet Night and The Seal) to the end, also add the last two chapter lines.
+
+**Title:** Play This Before You Sleep | Every Evil Arrow Returns to Sender Tonight
+
+**Description:**
+
+Tonight, every arrow aimed at your life turns around.
+
+Lie down under the shield of faith and let the Word of God send every attack back to the darkness it came from.
+
+In this prayer:
+
+🛡️ Every night arrow, dream attack and hidden trap reversed
+
+🔥 Witchcraft, curses and evil altars broken by the fire of God
+
+🩸 Your home, marriage, children, work and sleep covered by the Blood of Jesus
+
+📖 Scripture declared over your life, word for word from the King James Bible
+
+"No weapon that is formed against thee shall prosper; and every tongue that shall rise against thee in judgment thou shalt condemn." Isaiah 54:17
+
+Play this nightly before you sleep. Let it run while you rest for 7 nights, then 14, then 30, and keep the shield raised over your home.
+
+Type "Returned to sender. I am covered." in the comments as your declaration of faith.
+
+➡️ Subscribe to Shielded Tonight Prayers and pray with us every night. You are covered, you are seen, and this family of faith is praying beside you.
+
+**Chapters (estimated for a 25:00 recording; check two or three against your audio):**
+```
+00:00 Tonight every arrow turns around
+01:08 The nightly watch: Mordecai and Haman's gallows
+03:25 The shield of faith (Isaiah 54:17)
+05:31 The covering over you and your household
+08:09 Arrows by night
+09:41 Witchcraft and enchantment
+11:12 Curses and evil words
+12:41 Every pit and trap
+14:13 Dream attacks
+16:05 Monitoring spirits
+17:37 Evil altars
+19:02 Marriage and family
+20:32 Work and provision
+22:02 Fear, confusion and heaviness
+23:30 Delay and stagnation
+25:00 The quiet night (only if Part 7 is added)
+27:01 The seal (only if Part 7 is added)
+```
