@@ -1,0 +1,1418 @@
+WHY SOLDIERS STOPPED USING SHIELDS — IMAGE PROMPTS (177 beats)
+Visual style: Dark Archive Macro. Each beat is at most 5 seconds of narration (2.9 words per second). Every prompt works on its own.
+
+Beat 1 (0:00, ~3.1s)
+[Script Segment] "October 1415. On a muddy field in northern France,"
+Image Prompt: A miniature tabletop diorama of a rain-soaked ploughed field in northern France at dawn, deep muddy furrows filled with water, a small carved stone marker in the corner, mist hanging low over the mud. Slow push-in across the furrows. Camera: low eye-level angle skimming the mud, shallow depth of field. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: bleak, ominous. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle skimming the mud, shallow depth of field
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: bleak, ominous
+Action: Slow push-in across the furrows
+
+Beat 2 (0:03, ~2.4s)
+[Script Segment] "thousands of the best-armoured men in Europe"
+Image Prompt: A long line of faceless pewter miniature knight figures in full polished plate armour standing shoulder to shoulder at the edge of the muddy field diorama, steel glinting dully through the mist. Slow lateral slide along the line of armoured figures. Camera: low side angle, deep perspective, shallow depth of field. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: formidable, tense. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low side angle, deep perspective, shallow depth of field
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: formidable, tense
+Action: Slow lateral slide along the line of armoured figures
+
+Beat 3 (0:05, ~2.8s)
+[Script Segment] "walked straight into a storm of English arrows."
+Image Prompt: Hundreds of dark English war arrows frozen in mid-air in a steep falling arc above the muddy diorama, the line of tiny armoured figures waiting below. Slow upward tilt following the arc of arrows. Camera: low angle looking up through the arrows. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: dread, overwhelming. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low angle looking up through the arrows
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: dread, overwhelming
+Action: Slow upward tilt following the arc of arrows
+
+Beat 4 (0:08, ~2.4s)
+[Script Segment] "Almost none of them carried a shield."
+Image Prompt: A tiny armoured knight figure seen from behind in the mud, his left arm hanging empty at his side with no shield, arrows falling toward him out of focus. Rack focus from the empty left arm to the falling arrows. Camera: rear low angle close-up, very shallow depth of field. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: puzzling, exposed. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: rear low angle close-up, very shallow depth of field
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: puzzling, exposed
+Action: Rack focus from the empty left arm to the falling arrows
+
+Beat 5 (0:10, ~2.8s)
+[Script Segment] "For three thousand years, the shield had been"
+Image Prompt: A single ancient wooden shield, cracked and weathered, lying alone in a narrow pool of light on a long dark table, enormous darkness around it. Slow push-in toward the shield. Camera: high angle, wide. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: ancient, solemn. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high angle, wide
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: ancient, solemn
+Action: Slow push-in toward the shield
+
+Beat 6 (0:13, ~4.8s)
+[Script Segment] "the first thing a soldier picked up and the last thing he let go."
+Image Prompt: A worn wooden round shield leaning against a spear rack, its leather hand grip polished dark and smooth by centuries of use. Rack focus from the worn grip to the scarred shield face. Camera: eye-level close-up, very shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: loyal, timeworn. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up, very shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: loyal, timeworn
+Action: Rack focus from the worn grip to the scarred shield face
+
+Beat 7 (0:18, ~1.7s)
+[Script Segment] "Armies were built around it."
+Image Prompt: A top-down view of a vast miniature army diorama on a dark table, tight blocks of tiny faceless figures arranged around a central wall of overlapping shields. Slow overhead crane down toward the shield wall. Camera: top-down high angle, wide. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: vast, organised. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: top-down high angle, wide
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: vast, organised
+Action: Slow overhead crane down toward the shield wall
+
+Beat 8 (0:20, ~2.1s)
+[Script Segment] "Kings painted their names on it."
+Image Prompt: A heater shield painted with a faded gold lion on deep red, resting beside a wax royal seal stamped with the same lion, on a dark velvet cloth. Slow push-in toward the painted lion. Camera: high 3/4 angle close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: regal, reverent. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: regal, reverent
+Action: Slow push-in toward the painted lion
+
+Beat 9 (0:22, ~3.4s)
+[Script Segment] "And yet, at the exact moment arrows filled the sky,"
+Image Prompt: A dense cloud of dark arrows streaking across a grey sky above the muddy field diorama, sharp shafts in the foreground blurring into haze behind. Slow push through the falling arrows. Camera: low angle looking up, shallow depth of field. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: menacing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle looking up, shallow depth of field
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: menacing
+Action: Slow push through the falling arrows
+
+Beat 10 (0:25, ~3.4s)
+[Script Segment] "the knights of France had left theirs behind. On purpose."
+Image Prompt: A row of painted heater shields stacked against a baggage cart far behind the battle line in the diorama, deliberately left behind, the armoured figures standing in the mud ahead without them. Rack focus from the abandoned shields to the distant figures. Camera: low side angle, shallow depth of field. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: deliberate, mysterious. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low side angle, shallow depth of field
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: deliberate, mysterious
+Action: Rack focus from the abandoned shields to the distant figures
+
+Beat 11 (0:29, ~4.8s)
+[Script Segment] "This is the story of how the oldest piece of military equipment in history"
+Image Prompt: A long dark table holding a chronological lineup of shields fading into darkness: a Sumerian leather shield, a Greek aspis, a Roman scutum, a Norman kite shield, a heater shield, each in its own pool of light. Slow lateral slide along the lineup. Camera: low side angle along the table, deep perspective. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: epic, museum-like. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle along the table, deep perspective
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: epic, museum-like
+Action: Slow lateral slide along the lineup
+
+Beat 12 (0:33, ~4.1s)
+[Script Segment] "disappeared from the battlefield, and how, centuries later, it quietly came back."
+Image Prompt: The old shield lineup ending in an empty gap of darkness, and far beyond the gap a modern clear polycarbonate riot shield catching a single beam of light. Slow push across the dark gap toward the modern shield. Camera: low side angle along the table. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: disappearance, quiet return. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle along the table
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: disappearance, quiet return
+Action: Slow push across the dark gap toward the modern shield
+
+Beat 13 (0:37, ~2.4s)
+[Script Segment] "Because every shield existed for one reason:"
+Image Prompt: A Roman scutum and a medieval heater shield laid side by side on a dark table, each pierced by an arrow that has punched partway through the wood. Slow push-in toward the arrow tips poking through. Camera: high 3/4 angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: vulnerable, revealing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: vulnerable, revealing
+Action: Slow push-in toward the arrow tips poking through
+
+Beat 14 (0:40, ~3.4s)
+[Script Segment] "the armour behind it could not do the job alone."
+Image Prompt: An empty mail shirt on a museum stand with open gaps at the face, neck and legs, a large wooden shield placed in front of it that covers exactly those gaps. Slow orbit around the stand. Camera: eye-level medium shot, shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: explanatory, logical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot, shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: explanatory, logical
+Action: Slow orbit around the stand
+
+Beat 15 (0:43, ~4.5s)
+[Script Segment] "We spent months researching and rebuilding every stage of that story in 3D,"
+Image Prompt: A cluttered research desk at night with open history books, archaeological drawings of shields, a brass caliper and a small 3D-printed shield model under a warm desk lamp. Slow lateral slide across the desk. Camera: high 3/4 angle, shallow depth of field. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: dedicated, scholarly. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle, shallow depth of field
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: dedicated, scholarly
+Action: Slow lateral slide across the desk
+
+Beat 16 (0:48, ~4.5s)
+[Script Segment] "from the first shield walls of Mesopotamia to the ballistic shields of today."
+Image Prompt: A chronological row of shield models on a dark table, from a Sumerian rectangular leather shield at the left to a matte black ballistic shield with a viewing window at the right. Slow lateral slide from oldest to newest. Camera: low side angle along the table, deep perspective. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: epic sweep. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle along the table, deep perspective
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: epic sweep
+Action: Slow lateral slide from oldest to newest
+
+Beat 17 (0:52, ~3.1s)
+[Script Segment] "Around 2450 BC, in the Sumerian city of Lagash,"
+Image Prompt: A fragment of sun-baked mudbrick wall beside a clay tablet covered in cuneiform script on dark wood, golden dust drifting in the air. Slow push-in toward the cuneiform tablet. Camera: high 3/4 angle close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: ancient, sacred. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: ancient, sacred
+Action: Slow push-in toward the cuneiform tablet
+
+Beat 18 (0:55, ~4.5s)
+[Script Segment] "King Eannatum carved his victory over a rival city into a stone monument,"
+Image Prompt: A large carved limestone stele on a museum plinth, its relief showing a king leading rows of soldiers, the stone surface chipped and weathered. Slow upward tilt up the carved relief. Camera: low angle close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: monumental, ancient. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: monumental, ancient
+Action: Slow upward tilt up the carved relief
+
+Beat 19 (1:00, ~3.1s)
+[Script Segment] "the Stele of the Vultures. It shows something new."
+Image Prompt: Macro close-up of the Stele of the Vultures relief, carved vultures flying above rows of helmeted soldiers, deep shadows in the carving. Slow lateral slide across the carved vultures. Camera: macro close-up, very shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: grim, revealing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up, very shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: grim, revealing
+Action: Slow lateral slide across the carved vultures
+
+Beat 20 (1:03, ~2.4s)
+[Script Segment] "His soldiers march in a tight block,"
+Image Prompt: A miniature diorama of a Sumerian infantry block, tiny faceless figures in leather caps packed into a dense rectangle marching across a dusty plain. Slow push-in toward the front rank. Camera: low eye-level angle, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: disciplined, ancient. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low eye-level angle, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: disciplined, ancient
+Action: Slow push-in toward the front rank
+
+Beat 21 (1:05, ~4.5s)
+[Script Segment] "large rectangular shields locked edge to edge, spears pointing out through the gaps."
+Image Prompt: Close-up of tall rectangular Sumerian shields of leather stretched over wooden frames, locked edge to edge, copper-tipped spears jutting out through the narrow gaps. Slow lateral slide along the locked shield edges. Camera: macro side angle, shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: solid, impenetrable. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro side angle, shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: solid, impenetrable
+Action: Slow lateral slide along the locked shield edges
+
+Beat 22 (1:10, ~2.4s)
+[Script Segment] "Most of them wore almost nothing else."
+Image Prompt: A plain woven wool kilt and a simple leather cap laid flat on a dark table beside a short copper-tipped spear, no other equipment present. Slow overhead crane down. Camera: top-down high angle, medium close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: humble, exposed. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle, medium close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: humble, exposed
+Action: Slow overhead crane down
+
+Beat 23 (1:12, ~2.1s)
+[Script Segment] "No body armour, very little metal."
+Image Prompt: A tiny copper spearhead and a few copper rivets almost lost in a wide expanse of dark wood, emphasising how little metal there is. Slow push-in toward the small metal pieces. Camera: high 3/4 angle macro. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: sparse, vulnerable. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle macro
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: sparse, vulnerable
+Action: Slow push-in toward the small metal pieces
+
+Beat 24 (1:14, ~2.4s)
+[Script Segment] "Their protection came from the formation itself,"
+Image Prompt: A top-down view of a tight block of tiny Sumerian figures completely enclosed by overlapping shields, a protective rectangle of wood and leather. Slow overhead crane down. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: collective strength. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: collective strength
+Action: Slow overhead crane down
+
+Beat 25 (1:17, ~4.5s)
+[Script Segment] "a moving wall of wood and leather that no single enemy could break."
+Image Prompt: A moving wall of leather shields in a dusty diorama, shields overlapping like scales, a single enemy figure standing alone before the wall. Slow push-in past the lone figure toward the wall. Camera: low eye-level angle, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: unbreakable. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low eye-level angle, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: unbreakable
+Action: Slow push-in past the lone figure toward the wall
+
+Beat 26 (1:21, ~3.1s)
+[Script Segment] "But a wall only works if nobody leaves it."
+Image Prompt: A gap in a miniature shield wall where one shield has fallen face-down in the dust, the formation broken open around it. Slow push-in toward the gap. Camera: high 3/4 angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: fragile, warning. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: fragile, warning
+Action: Slow push-in toward the gap
+
+Beat 27 (1:24, ~3.1s)
+[Script Segment] "And those shields were heavy, held by the hand,"
+Image Prompt: A single large Sumerian shield on a dark table showing one simple central hand grip of twisted leather, its wooden frame thick and heavy. Slow orbit to reveal the single grip. Camera: low side angle close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: burdensome. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: burdensome
+Action: Slow orbit to reveal the single grip
+
+Beat 28 (1:27, ~2.1s)
+[Script Segment] "and exhausting to carry for hours."
+Image Prompt: Close-up of the leather hand grip on a heavy shield, stretched thin and torn at one end from strain, dust on the frame. Rack focus from the frayed leather to the heavy frame. Camera: macro close-up, very shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: exhausting, strained. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up, very shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: exhausting, strained
+Action: Rack focus from the frayed leather to the heavy frame
+
+Beat 29 (1:30, ~4.5s)
+[Script Segment] "By the 7th century BC, the Greeks had found a solution, the aspis."
+Image Prompt: A Greek hoplite aspis on a museum stand, a large round shield with a bronze-faced front, a wide flat rim and a faded painted emblem. Slow push-in toward the bronze face. Camera: eye-level medium close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: elegant, classical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: elegant, classical
+Action: Slow push-in toward the bronze face
+
+Beat 30 (1:34, ~3.4s)
+[Script Segment] "A round shield almost a metre wide, built from wood"
+Image Prompt: An aspis laid flat on a dark table with an old brass measuring rule across its diameter, showing it almost a metre wide. Slow overhead crane down along the rule. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: precise, technical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: precise, technical
+Action: Slow overhead crane down along the rule
+
+Beat 31 (1:37, ~3.1s)
+[Script Segment] "and often faced with a thin skin of bronze."
+Image Prompt: Cutaway cross-section of an aspis showing a thick wooden core with a thin hammered bronze skin bonded to the front. Slow orbit around the cut edge. Camera: macro close-up on the cross-section. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: technical, curious. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up on the cross-section
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: technical, curious
+Action: Slow orbit around the cut edge
+
+Beat 32 (1:41, ~4.1s)
+[Script Segment] "Its real genius was hidden on the inside. Instead of one handle,"
+Image Prompt: An aspis turned face-down on a dark table, the inside surface revealed in shadow, a bronze armband and leather strap catching the light. Slow push-in toward the hidden hardware. Camera: high 3/4 angle close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: discovery. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: discovery
+Action: Slow push-in toward the hidden hardware
+
+Beat 33 (1:45, ~4.1s)
+[Script Segment] "the soldier slid his forearm through a bronze band at the centre"
+Image Prompt: A carved wooden museum forearm form sliding through the central bronze armband, the porpax, on the inside of an aspis. Slow push-in along the forearm into the band. Camera: macro side angle, very shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: ingenious. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro side angle, very shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: ingenious
+Action: Slow push-in along the forearm into the band
+
+Beat 34 (1:49, ~2.4s)
+[Script Segment] "and gripped a strap near the rim."
+Image Prompt: A carved wooden museum hand form gripping the leather antilabe strap near the rim of the aspis, the strap pulled tight. Rack focus from the armband to the gripping hand. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: secure, clever. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: secure, clever
+Action: Rack focus from the armband to the gripping hand
+
+Beat 35 (1:51, ~4.1s)
+[Script Segment] "The weight now rested on his arm and shoulder, not his wrist."
+Image Prompt: An aspis mounted on a wooden museum arm and shoulder form, faint glowing lines showing the weight spreading along the forearm to the shoulder instead of the wrist. Slow orbit around the arm. Camera: eye-level medium close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: technical, clear. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: technical, clear
+Action: Slow orbit around the arm
+
+Beat 36 (1:55, ~3.4s)
+[Script Segment] "A man could hold it up for an entire battle."
+Image Prompt: A battle-worn aspis resting upright against a rock in a miniature landscape at dusk, dented and scratched but intact. Slow push-in. Camera: low eye-level angle, shallow depth of field. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: endurance. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle, shallow depth of field
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: endurance
+Action: Slow push-in
+
+Beat 37 (1:59, ~1.7s)
+[Script Segment] "The Greek phalanx was born."
+Image Prompt: A miniature diorama of a Greek phalanx in perfect order, rows of overlapping round shields, long spears levelled forward, bronze glinting. Slow pull-back revealing the full formation. Camera: low side angle, deep perspective. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: triumphant, powerful. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle, deep perspective
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: triumphant, powerful
+Action: Slow pull-back revealing the full formation
+
+Beat 38 (2:01, ~2.4s)
+[Script Segment] "But the aspis had a hidden flaw."
+Image Prompt: Close-up of the right end of a phalanx front rank, the last figure's right side visibly exposed beyond the shield rim. Slow push-in toward the exposed right side. Camera: eye-level close-up, shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: revealing flaw. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: eye-level close-up, shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: revealing flaw
+Action: Slow push-in toward the exposed right side
+
+Beat 39 (2:03, ~2.8s)
+[Script Segment] "It covered the left side of its owner,"
+Image Prompt: Two miniature hoplite figures side by side seen from behind, a faint glowing outline showing the aspis covering its owner's left side. Slow lateral slide from left to right. Camera: rear eye-level angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: explanatory. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: rear eye-level angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: explanatory
+Action: Slow lateral slide from left to right
+
+Beat 40 (2:06, ~3.4s)
+[Script Segment] "and the right side of the man next to him."
+Image Prompt: The same two hoplite figures, the glowing outline now showing the shield also covering the right side of the neighbouring figure. Slow lateral slide continuing right. Camera: rear eye-level angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: interdependent. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: rear eye-level angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: interdependent
+Action: Slow lateral slide continuing right
+
+Beat 41 (2:09, ~2.1s)
+[Script Segment] "Every soldier depended on his neighbour."
+Image Prompt: A top-down view of a phalanx with each round shield overlapping the next like links in a chain running down the line. Slow overhead crane down. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: interdependent. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: interdependent
+Action: Slow overhead crane down
+
+Beat 42 (2:11, ~2.8s)
+[Script Segment] "The Athenian historian Thucydides noticed what happened next."
+Image Prompt: An ancient papyrus scroll with Greek writing partly unrolled beside a flickering oil lamp and a bronze stylus on a dark desk. Slow push-in toward the writing. Camera: high 3/4 angle close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: scholarly, historic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: scholarly, historic
+Action: Slow push-in toward the writing
+
+Beat 43 (2:14, ~3.4s)
+[Script Segment] "As an army advanced, each man edged to the right,"
+Image Prompt: A top-down diorama of an advancing phalanx with faint chalk arrows on the table showing each figure stepping slightly to the right. Slow overhead tracking shot following the drift. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: subtle, curious. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: subtle, curious
+Action: Slow overhead tracking shot following the drift
+
+Beat 44 (2:17, ~4.5s)
+[Script Segment] "looking for cover behind the next shield, until the whole line drifted sideways."
+Image Prompt: The whole miniature battle line visibly angled and drifting sideways across the dusty table, its right wing far ahead of its left. Slow pull-back revealing the tilted line. Camera: high wide angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: unstable, revealing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high wide angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: unstable, revealing
+Action: Slow pull-back revealing the tilted line
+
+Beat 45 (2:22, ~1.7s)
+[Script Segment] "The shield protected the formation."
+Image Prompt: A wall of overlapping round shields in close-up, the figures behind it hidden and protected. Slow push-in toward the overlapping rims. Camera: eye-level close-up, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: protective. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: eye-level close-up, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: protective
+Action: Slow push-in toward the overlapping rims
+
+Beat 46 (2:24, ~1.4s)
+[Script Segment] "It also controlled it."
+Image Prompt: The same shield wall from directly above, looking like a rigid cage that locks every figure in place. Slow overhead crane up. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: confining, ironic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: confining, ironic
+Action: Slow overhead crane up
+
+Beat 47 (2:25, ~2.8s)
+[Script Segment] "Then came Rome. The legionary carried the scutum,"
+Image Prompt: A Roman scutum on a museum stand, painted deep red with a gilded thunderbolt emblem and a central iron boss, a marble column fragment behind it. Slow push-in from wide to medium. Camera: low eye-level angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: imperial, powerful. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: imperial, powerful
+Action: Slow push-in from wide to medium
+
+Beat 48 (2:28, ~1.4s)
+[Script Segment] "a tall curved rectangle"
+Image Prompt: A side profile of the scutum standing on dark wood, showing its tall rectangular height and deep curve. Slow orbit around the curved edge. Camera: low side angle, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: solid. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: solid
+Action: Slow orbit around the curved edge
+
+Beat 49 (2:29, ~3.8s)
+[Script Segment] "made from thin layers of wood glued together like modern plywood,"
+Image Prompt: Exploded 3D cutaway of a scutum with thin layers of wood strips glued crosswise like plywood, the layers floating apart above the table. Slow orbit around the floating layers. Camera: high 3/4 angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: technical, ingenious. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: technical, ingenious
+Action: Slow orbit around the floating layers
+
+Beat 50 (2:33, ~1.4s)
+[Script Segment] "weighing around ten kilograms."
+Image Prompt: A scutum resting across an old brass balance scale, counterweights stacked on the other pan to ten kilograms. Slow push-in toward the scale needle. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: heavy, factual. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: heavy, factual
+Action: Slow push-in toward the scale needle
+
+Beat 51 (2:34, ~2.1s)
+[Script Segment] "The curve wrapped around the body,"
+Image Prompt: A top-down view of a scutum fitted against a wooden museum torso form, its deep curve wrapping around the body. Slow overhead crane down. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: protective. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: protective
+Action: Slow overhead crane down
+
+Beat 52 (2:36, ~4.1s)
+[Script Segment] "and an iron boss in the centre turned it into a weapon."
+Image Prompt: Macro close-up of the hammered iron boss at the centre of a scutum, dented from impacts, rivets around its edge. Slow push-in toward the dented boss. Camera: macro close-up, very shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: brutal, practical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up, very shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: brutal, practical
+Action: Slow push-in toward the dented boss
+
+Beat 53 (2:41, ~3.8s)
+[Script Segment] "A legionary could punch with it, knock an enemy off balance,"
+Image Prompt: A scutum mounted on a museum test rig thrust forward so its iron boss strikes a padded wooden target, which rocks backward. Slow-motion push forward with the strike. Camera: low side angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: forceful. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: forceful
+Action: Slow-motion push forward with the strike
+
+Beat 54 (2:44, ~3.1s)
+[Script Segment] "and stab into the opening with his short sword."
+Image Prompt: A Roman gladius short sword lying beside the edge of a scutum on dark wood, the blade angled toward the narrow gap beside the shield. Rack focus from the shield edge to the sword tip. Camera: low side angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: efficient, lethal. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: efficient, lethal
+Action: Rack focus from the shield edge to the sword tip
+
+Beat 55 (2:47, ~2.1s)
+[Script Segment] "And when arrows and stones fell,"
+Image Prompt: Arrows and sling stones falling from a hazy sky toward a miniature Roman legion diorama. Slow downward tilt with the falling projectiles. Camera: low angle looking up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: threatening. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle looking up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: threatening
+Action: Slow downward tilt with the falling projectiles
+
+Beat 56 (2:50, ~3.4s)
+[Script Segment] "the legion could lock those shields above and around itself,"
+Image Prompt: A miniature Roman legion locking red scuta overhead and on every side, the shields interlocking like roof tiles. Slow orbit around the formation as it closes. Camera: eye-level medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: disciplined. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: disciplined
+Action: Slow orbit around the formation as it closes
+
+Beat 57 (2:53, ~1.7s)
+[Script Segment] "forming the testudo, the tortoise."
+Image Prompt: A completed testudo formation in a diorama, a rectangular shell of red shields like a tortoise, arrows bouncing off its roof. Slow overhead crane down. Camera: high 3/4 angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: impregnable. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: impregnable
+Action: Slow overhead crane down
+
+Beat 58 (2:55, ~4.1s)
+[Script Segment] "But in 53 BC, at Carrhae, in what is now southern Turkey,"
+Image Prompt: A dry desert plain diorama under harsh pale light, a small Roman testudo surrounded by empty sand and scattered rocks. Slow pull-back revealing the empty desert. Camera: high wide angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: isolated, foreboding. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high wide angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: isolated, foreboding
+Action: Slow pull-back revealing the empty desert
+
+Beat 59 (2:59, ~3.1s)
+[Script Segment] "the tortoise met an enemy it could not outlast."
+Image Prompt: A testudo seen at ground level with arrows already lodged in its shields, sand blowing around its edges. Slow push-in. Camera: low eye-level angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: besieged. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: besieged
+Action: Slow push-in
+
+Beat 60 (3:02, ~3.1s)
+[Script Segment] "Parthian horse archers circled the army of Marcus Crassus"
+Image Prompt: A ring of tiny Parthian horse archer figures circling a Roman testudo on the desert diorama, trails of sand behind the horses. Slow overhead orbit following the riders. Camera: top-down high angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: relentless. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: relentless
+Action: Slow overhead orbit following the riders
+
+Beat 61 (3:05, ~2.1s)
+[Script Segment] "and shot into it all day,"
+Image Prompt: A Roman scutum bristling with dozens of arrows, so many that the red paint is barely visible. Slow orbit around the arrows. Camera: eye-level close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: overwhelmed. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: overwhelmed
+Action: Slow orbit around the arrows
+
+Beat 62 (3:07, ~3.1s)
+[Script Segment] "while a train of camels brought them fresh arrows."
+Image Prompt: A line of miniature camels loaded with bundled quivers of fresh arrows walking along a desert ridge diorama. Slow lateral slide following the camel train. Camera: low side angle, deep perspective. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: endless supply. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle, deep perspective
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: endless supply
+Action: Slow lateral slide following the camel train
+
+Beat 63 (3:10, ~4.5s)
+[Script Segment] "The Romans could hide behind their shields, but they could not strike back."
+Image Prompt: A Roman gladius lying unused in the sand beside a scutum full of arrows. Rack focus from the arrows to the idle sword. Camera: low eye-level close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: helpless. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: helpless
+Action: Rack focus from the arrows to the idle sword
+
+Beat 64 (3:15, ~4.8s)
+[Script Segment] "The writer Plutarch describes arrows pinning hands to shields and feet to the ground."
+Image Prompt: An open ancient codex beside a scutum lying in the sand, arrows driven through the shield into the ground beneath it. Slow push-in toward the arrows pinning the shield. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: gruesome, historic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: gruesome, historic
+Action: Slow push-in toward the arrows pinning the shield
+
+Beat 65 (3:20, ~3.8s)
+[Script Segment] "Crassus was killed, along with around twenty thousand of his men."
+Image Prompt: A Roman general's crested helmet lying in the desert sand among broken arrows, a field of abandoned shields beyond it. Slow pull-back revealing the abandoned shields. Camera: high angle, wide. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: defeat, grief. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high angle, wide
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: defeat, grief
+Action: Slow pull-back revealing the abandoned shields
+
+Beat 66 (3:23, ~2.1s)
+[Script Segment] "A shield could stop an arrow."
+Image Prompt: A single arrow stopped in the face of a scutum, its tip unable to break through. Slow push-in toward the tip. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: partial victory. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: partial victory
+Action: Slow push-in toward the tip
+
+Beat 67 (3:25, ~2.8s)
+[Script Segment] "It could not win a battle by itself."
+Image Prompt: An abandoned scutum on the desert floor, sand drifting over its rim, no army in sight. Slow pull-back. Camera: high angle, wide. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: futile. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high angle, wide
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: futile
+Action: Slow pull-back
+
+Beat 68 (3:28, ~4.8s)
+[Script Segment] "Over the following centuries, the round shield and the shield wall returned across Europe."
+Image Prompt: A map of Europe engraved on a dark brass plate, small round shield tokens spreading across its regions. Slow overhead crane down across the map. Camera: top-down high angle. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: passage of time. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: passage of time
+Action: Slow overhead crane down across the map
+
+Beat 69 (3:33, ~4.5s)
+[Script Segment] "In 1066, at Hastings, an English army stood on a hilltop behind one."
+Image Prompt: A grassy hilltop diorama with a dense English shield wall of round painted shields along its crest. Slow push-in up the slope. Camera: low angle looking uphill. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: defiant. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle looking uphill
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: defiant
+Action: Slow push-in up the slope
+
+Beat 70 (3:37, ~4.5s)
+[Script Segment] "Facing them were Norman knights on horseback, wearing long shirts of iron mail"
+Image Prompt: Miniature Norman knight figures on horseback at the bottom of the hill, wearing long mail shirts down to the knee. Slow lateral slide along the cavalry. Camera: low side angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: aggressive, determined. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: aggressive, determined
+Action: Slow lateral slide along the cavalry
+
+Beat 71 (3:42, ~2.8s)
+[Script Segment] "and carrying a new shape, the kite shield."
+Image Prompt: A Norman kite shield on a museum stand, rounded at the top and tapering to a long point, painted with a simple dragon motif. Slow upward tilt along its length. Camera: low eye-level angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: new, distinctive. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: new, distinctive
+Action: Slow upward tilt along its length
+
+Beat 72 (3:45, ~2.1s)
+[Script Segment] "Long and pointed at the bottom,"
+Image Prompt: Close-up of the long pointed lower tail of a kite shield, the paint worn at the tip. Slow push-in toward the point. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: purposeful. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: purposeful
+Action: Slow push-in toward the point
+
+Beat 73 (3:47, ~3.4s)
+[Script Segment] "it protected the rider's left leg, which mail barely covered."
+Image Prompt: A mail shirt and kite shield arranged on a horse-and-rider museum armature, the shield's tail covering the lower left leg where the mail ends. Slow orbit around the left side. Camera: eye-level medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: explanatory. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: explanatory
+Action: Slow orbit around the left side
+
+Beat 74 (3:50, ~1.7s)
+[Script Segment] "For hours the wall held."
+Image Prompt: The English shield wall on the hilltop diorama standing firm, broken lances and arrows scattered at its base. Slow push-in. Camera: low angle looking uphill. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: stubborn. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle looking uphill
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: stubborn
+Action: Slow push-in
+
+Beat 75 (3:52, ~4.5s)
+[Script Segment] "According to Norman chroniclers, it only broke after the knights pretended to retreat,"
+Image Prompt: Mounted Norman figures turning their horses away from the hill in the diorama, while small English figures break from the wall to chase them. Slow lateral slide following the movement. Camera: high 3/4 angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: cunning, deceptive. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: cunning, deceptive
+Action: Slow lateral slide following the movement
+
+Beat 76 (3:56, ~2.4s)
+[Script Segment] "drawing English soldiers out of the line."
+Image Prompt: The shield wall from above with gaps opening along it, shields out of line, the formation coming apart. Slow overhead crane down. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: collapse. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: collapse
+Action: Slow overhead crane down
+
+Beat 77 (3:59, ~3.1s)
+[Script Segment] "But the Normans had a problem of their own."
+Image Prompt: A Norman conical helmet with an iron nose guard alone on a stand in deep shadow. Slow push-in. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: uneasy. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: uneasy
+Action: Slow push-in
+
+Beat 78 (4:02, ~3.1s)
+[Script Segment] "Behind iron nose guards, every knight looked the same."
+Image Prompt: A row of identical Norman conical helmets with nose guards on stands, impossible to tell apart. Slow lateral slide along the row. Camera: eye-level close-up, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: anonymous. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: anonymous
+Action: Slow lateral slide along the row
+
+Beat 79 (4:05, ~4.1s)
+[Script Segment] "In the chaos, a rumour spread that Duke William had been killed,"
+Image Prompt: A ducal banner fallen in the mud of a miniature battlefield, hoof prints churned around it, haze drifting. Slow push-in. Camera: low angle close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: chaos, fear. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: chaos, fear
+Action: Slow push-in
+
+Beat 80 (4:09, ~4.1s)
+[Script Segment] "and he had to lift his helmet to prove he was alive."
+Image Prompt: A Norman helmet lifted upward off its stand, light flooding the empty space beneath the nose guard. Slow upward tilt with the lifted helmet. Camera: low eye-level angle. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: reassurance, dramatic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: reassurance, dramatic
+Action: Slow upward tilt with the lifted helmet
+
+Beat 81 (4:13, ~4.5s)
+[Script Segment] "By the late 1100s, mail covered the arms, the hands and the feet."
+Image Prompt: A full mail suit on a stand including mail mittens over the hands and mail leggings down to the feet. Slow upward tilt from the feet to the shoulders. Camera: low angle, medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: complete coverage. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle, medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: complete coverage
+Action: Slow upward tilt from the feet to the shoulders
+
+Beat 82 (4:18, ~3.4s)
+[Script Segment] "The leg no longer needed the kite shield's long tail,"
+Image Prompt: A kite shield on a workbench with its long tail being sawn away, fresh wood shavings on the table. Slow push-in toward the saw cut. Camera: high 3/4 angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: craftsmanship. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: craftsmanship
+Action: Slow push-in toward the saw cut
+
+Beat 83 (4:21, ~3.4s)
+[Script Segment] "so it was cut down into the smaller heater shield,"
+Image Prompt: A smaller flat-topped heater shield resting beside the cut-off tail, its new shape clean and compact. Rack focus from the cut-off tail to the heater shield. Camera: high 3/4 angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: refined. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: refined
+Action: Rack focus from the cut-off tail to the heater shield
+
+Beat 84 (4:25, ~3.8s)
+[Script Segment] "named for its resemblance to the base of a clothes iron."
+Image Prompt: A heater shield placed beside an antique cast-iron clothes iron, their outlines nearly identical. Slow overhead crane down. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: witty, surprising. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: witty, surprising
+Action: Slow overhead crane down
+
+Beat 85 (4:29, ~3.4s)
+[Script Segment] "At the same time, helmets closed completely over the face."
+Image Prompt: A flat-topped great helm with narrow eye slits on a stand, completely enclosing the face. Slow push-in toward the eye slits. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: faceless, imposing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: faceless, imposing
+Action: Slow push-in toward the eye slits
+
+Beat 86 (4:32, ~3.4s)
+[Script Segment] "To be recognised, knights painted bold symbols on their shields,"
+Image Prompt: A heater shield on an easel beside pots of medieval pigment and brushes, a bold heraldic design half painted. Slow lateral slide across the paint pots. Camera: high 3/4 angle close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: creative. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: creative
+Action: Slow lateral slide across the paint pots
+
+Beat 87 (4:35, ~3.8s)
+[Script Segment] "lions, crosses and stripes, and passed them down to their sons."
+Image Prompt: A row of heater shields each painted with a bold design: a lion rampant, a black cross, red and white stripes. Slow lateral slide along the row. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: proud, colourful. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: proud, colourful
+Action: Slow lateral slide along the row
+
+Beat 88 (4:39, ~3.1s)
+[Script Segment] "Heraldry was born. The shield had become an identity."
+Image Prompt: A medieval great hall wall lined with heraldic shields in neat rows above a carved family chest. Slow upward tilt across the rows. Camera: low angle, wide. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: identity, legacy. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle, wide
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: identity, legacy
+Action: Slow upward tilt across the rows
+
+Beat 89 (4:42, ~4.8s)
+[Script Segment] "And a pattern had begun that would repeat for the next three hundred years."
+Image Prompt: An hourglass on a dark table beside a heater shield, sand running through it. Slow push-in toward the falling sand. Camera: eye-level close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: anticipation, time. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: anticipation, time
+Action: Slow push-in toward the falling sand
+
+Beat 90 (4:47, ~3.1s)
+[Script Segment] "Every time the armour improved, the shield got smaller."
+Image Prompt: Two rows on a dark table running in opposite directions: armour pieces growing larger and shields shrinking smaller. Slow lateral slide down both rows. Camera: low side angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: clear pattern. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: clear pattern
+Action: Slow lateral slide down both rows
+
+Beat 91 (4:50, ~2.4s)
+[Script Segment] "Around 1250, knights began wearing iron plates"
+Image Prompt: A medieval coat of plates laid open on a dark table, dyed cloth outer layer folded back to reveal rows of overlapping iron plates inside. Slow push-in toward the iron plates. Camera: high 3/4 angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: rugged, inventive. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: rugged, inventive
+Action: Slow push-in toward the iron plates
+
+Beat 92 (4:53, ~2.8s)
+[Script Segment] "riveted inside a cloth coat over their mail."
+Image Prompt: Macro of brass rivet heads punched through faded red cloth, each one fixing an iron plate beneath, the coat resting over a coil of mail. Slow lateral slide along the rivets. Camera: macro close-up, very shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: technical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up, very shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: technical
+Action: Slow lateral slide along the rivets
+
+Beat 93 (4:55, ~3.8s)
+[Script Segment] "Then came plates for the knees, the elbows and the shins."
+Image Prompt: Separate iron plate pieces for knees, elbows and shins arranged on dark wood like museum specimens, each with leather straps and buckles. Slow overhead crane down across the pieces. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: incremental progress. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: incremental progress
+Action: Slow overhead crane down across the pieces
+
+Beat 94 (4:59, ~2.8s)
+[Script Segment] "Each generation, the shield shrank a little more."
+Image Prompt: A row of three heater shields on a dark table, each one noticeably smaller than the last, beside an armour stand gaining more plates. Slow lateral slide down the shrinking shields. Camera: low side angle, deep perspective. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: dwindling, rhythmic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle, deep perspective
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: dwindling, rhythmic
+Action: Slow lateral slide down the shrinking shields
+
+Beat 95 (5:02, ~2.4s)
+[Script Segment] "But not everyone could afford metal plates."
+Image Prompt: A simple padded cloth jack and an iron kettle hat on a rough table beside an empty space where expensive plates would be. Slow lateral slide from the padded jack into the empty space. Camera: high 3/4 angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: modest, unequal. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: modest, unequal
+Action: Slow lateral slide from the padded jack into the empty space
+
+Beat 96 (5:04, ~3.1s)
+[Script Segment] "At Crécy, in 1346, Genoese crossbowmen fighting for France"
+Image Prompt: A miniature diorama of Genoese crossbowmen standing in a muddy field near Crécy, heavy crossbows in hand, a rainy grey sky above. Slow push-in toward the front rank. Camera: low eye-level angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: exposed, uneasy. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: exposed, uneasy
+Action: Slow push-in toward the front rank
+
+Beat 97 (5:07, ~2.8s)
+[Script Segment] "normally sheltered behind huge standing shields called pavises."
+Image Prompt: A huge painted pavise standing upright on a dark table, tall enough to hide a kneeling man, a wooden prop stand behind it and a crossbow leaning against it. Slow upward tilt up the pavise. Camera: low angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: protective, solid. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: protective, solid
+Action: Slow upward tilt up the pavise
+
+Beat 98 (5:10, ~4.5s)
+[Script Segment] "That day, their pavises were still with the baggage, far behind the army."
+Image Prompt: A medieval baggage wagon stacked with pavises stuck in mud far behind a marching column in the diorama, the distance between them emphasised. Slow pull-back revealing the gap. Camera: high wide angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: frustrating, ironic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high wide angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: frustrating, ironic
+Action: Slow pull-back revealing the gap
+
+Beat 99 (5:15, ~3.4s)
+[Script Segment] "Exposed to English longbowmen who could shoot several times faster,"
+Image Prompt: English longbows and full arrow bags in the sharp foreground of the diorama, the exposed crossbowmen small and distant across the field. Rack focus from the longbows to the distant crossbowmen. Camera: low side angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: outmatched. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: outmatched
+Action: Rack focus from the longbows to the distant crossbowmen
+
+Beat 100 (5:18, ~1.7s)
+[Script Segment] "they broke and fell back."
+Image Prompt: A dropped crossbow and a spilled quiver of bolts lying abandoned in the mud, footprints leading away. Slow push-in. Camera: low eye-level close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: defeat. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: defeat
+Action: Slow push-in
+
+Beat 101 (5:20, ~3.8s)
+[Script Segment] "The shield wasn't obsolete. It was only obsolete for the rich."
+Image Prompt: A cheap wooden shield in a pool of light beside a gleaming steel breastplate, a small pile of gold coins next to the steel. Rack focus from the coins and steel to the wooden shield. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: inequality. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: inequality
+Action: Rack focus from the coins and steel to the wooden shield
+
+Beat 102 (5:24, ~4.5s)
+[Script Segment] "By around 1400, armourers in Milan and southern Germany had finished the job."
+Image Prompt: An armourer's workshop with anvils, hammers and half-finished steel plates, a faint Milanese maker's mark visible on a breastplate. Slow lateral slide through the workshop. Camera: low side angle. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: craftsmanship. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: craftsmanship
+Action: Slow lateral slide through the workshop
+
+Beat 103 (5:28, ~3.8s)
+[Script Segment] "A complete suit of hardened steel plates, shaped to the body"
+Image Prompt: A complete harness of plate armour on a stand, every piece shaped to the human body, from sabatons to closed helmet. Slow upward tilt from the feet to the helmet. Camera: low angle, medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: majestic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle, medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: majestic
+Action: Slow upward tilt from the feet to the helmet
+
+Beat 104 (5:32, ~3.1s)
+[Script Segment] "and polished so bright it was called white armour."
+Image Prompt: Macro of mirror-polished steel plates reflecting the light so brightly they appear almost white. Slow lateral slide across the polished surface. Camera: macro close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: pristine, gleaming. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: pristine, gleaming
+Action: Slow lateral slide across the polished surface
+
+Beat 105 (5:35, ~4.1s)
+[Script Segment] "In most places the steel was only one to three millimetres thick,"
+Image Prompt: The edge of a breastplate in cross-section, a brass caliper measuring its thin steel. Slow push-in toward the caliper jaws. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: technical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: technical
+Action: Slow push-in toward the caliper jaws
+
+Beat 106 (5:39, ~2.4s)
+[Script Segment] "but it didn't need to be thicker."
+Image Prompt: A thin breastplate in profile standing confidently beside a much thicker, cruder iron slab. Slow orbit around the two pieces. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: confident. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: confident
+Action: Slow orbit around the two pieces
+
+Beat 107 (5:42, ~1.7s)
+[Script Segment] "Its rounded surfaces were angled"
+Image Prompt: A breastplate surface showing its rounded curves and angled planes, highlights tracing each curve. Slow orbit around the curves. Camera: macro side angle. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: engineered. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro side angle
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: engineered
+Action: Slow orbit around the curves
+
+Beat 108 (5:43, ~3.8s)
+[Script Segment] "so that arrows and blades skidded off instead of biting in."
+Image Prompt: A slow-motion arrow striking a curved breastplate and skidding off sideways, a tiny shower of sparks. Slow-motion tracking with the arrow. Camera: macro close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: deflection. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: deflection
+Action: Slow-motion tracking with the arrow
+
+Beat 109 (5:47, ~4.5s)
+[Script Segment] "An arrow that could split iron rings now simply skated across the surface."
+Image Prompt: A piece of broken mail with split rings beside a polished plate showing only a fine scratch line where an arrow skated across. Rack focus from the split mail to the scratched plate. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: satisfying contrast. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: satisfying contrast
+Action: Rack focus from the split mail to the scratched plate
+
+Beat 110 (5:52, ~2.4s)
+[Script Segment] "The armour itself had become the shield."
+Image Prompt: A full suit of plate armour standing alone, no shield anywhere near it, its polished surfaces reflecting like a shield face. Slow pull-back. Camera: eye-level medium shot. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: complete. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: complete
+Action: Slow pull-back
+
+Beat 111 (5:54, ~4.1s)
+[Script Segment] "And a knight in full plate now had a free left hand."
+Image Prompt: The open left gauntlet of a polished plate armour suit on a stand, steel fingers relaxed and empty where a shield strap would once have been held. Slow push-in toward the empty palm. Camera: macro close-up, very shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: anticipation. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up, very shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: anticipation
+Action: Slow push-in toward the empty palm
+
+Beat 112 (5:58, ~1.4s)
+[Script Segment] "So he filled it."
+Image Prompt: A pollaxe haft being lowered into the empty left gauntlet so both steel hands now grip the same long weapon. Slow push-in following the haft into the grip. Camera: low side angle close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: decisive. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: decisive
+Action: Slow push-in following the haft into the grip
+
+Beat 113 (6:00, ~2.8s)
+[Script Segment] "He took up two-handed weapons like the pollaxe,"
+Image Prompt: A pollaxe lying diagonally across a long dark wooden table, its ash haft and steel langets fading into shadow at one end. Slow lateral slide along the haft toward the head. Camera: high 3/4 angle, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: powerful, deliberate. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: powerful, deliberate
+Action: Slow lateral slide along the haft toward the head
+
+Beat 114 (6:02, ~3.8s)
+[Script Segment] "an axe, a hammer and a spike mounted on a pole"
+Image Prompt: Macro of a pollaxe head showing the curved axe blade, the toothed hammer face and the sharp top spike, all forged as one piece. Slow orbit around the head. Camera: macro close-up, very shallow depth of field. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: lethal, ingenious. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up, very shallow depth of field
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: lethal, ingenious
+Action: Slow orbit around the head
+
+Beat 115 (6:06, ~2.8s)
+[Script Segment] "about as long as a man is tall,"
+Image Prompt: A pollaxe standing upright beside an empty plate armour stand, the weapon reaching exactly the height of the helmet crest. Slow upward tilt along both. Camera: low angle, medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: imposing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle, medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: imposing
+Action: Slow upward tilt along both
+
+Beat 116 (6:09, ~3.8s)
+[Script Segment] "designed to crack open men wearing armour just like his own."
+Image Prompt: The hammer face of a pollaxe resting against a deeply dented breastplate, its spike aimed at the unprotected gap at the armpit. Slow push-in toward the dent and the gap. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: brutal. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: brutal
+Action: Slow push-in toward the dent and the gap
+
+Beat 117 (6:13, ~2.1s)
+[Script Segment] "Which brings us back to Agincourt."
+Image Prompt: The rain-soaked ploughed field diorama from the opening, now seen wide, the line of armoured figures at one end and English stakes at the other. Slow pull-back revealing the whole field. Camera: high wide angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: return, foreboding. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: high wide angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: return, foreboding
+Action: Slow pull-back revealing the whole field
+
+Beat 118 (6:15, ~2.1s)
+[Script Segment] "On the 25th of October, 1415,"
+Image Prompt: A small carved stone marker in the mud of the diorama, a rain puddle beside it reflecting a grey October sky, a fallen autumn leaf floating in the puddle. Slow push-in toward the marker. Camera: low eye-level close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: historic, solemn. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: historic, solemn
+Action: Slow push-in toward the marker
+
+Beat 119 (6:17, ~4.8s)
+[Script Segment] "French knights advanced across a freshly ploughed field soaked by a night of rain."
+Image Prompt: A long line of armoured knight figures advancing across deep wet furrows, mud splashed up their steel legs, rain mist drifting over the field. Slow lateral slide following the advance. Camera: low side angle, deep perspective. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: ponderous. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low side angle, deep perspective
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: ponderous
+Action: Slow lateral slide following the advance
+
+Beat 120 (6:22, ~3.8s)
+[Script Segment] "English arrows struck them again and again, and mostly glanced away."
+Image Prompt: Arrows striking polished plate armour and glancing away in slow motion, broken shafts and splinters falling into the mud below. Slow-motion orbit around the impacts. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: deflection. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: deflection
+Action: Slow-motion orbit around the impacts
+
+Beat 121 (6:25, ~2.4s)
+[Script Segment] "Their armour did exactly what it promised."
+Image Prompt: A dented but unbroken breastplate standing on a stand in the mud, dozens of spent arrows lying at its feet. Slow push-in toward the dents. Camera: low close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: vindicated. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: vindicated
+Action: Slow push-in toward the dents
+
+Beat 122 (6:28, ~2.4s)
+[Script Segment] "But the mud rose to their knees."
+Image Prompt: Steel-armoured legs sunk in thick brown mud right up to the knee plates, water pooling around them. Slow push-in toward the knees. Camera: low close-up, very shallow depth of field. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: trapped. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low close-up, very shallow depth of field
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: trapped
+Action: Slow push-in toward the knees
+
+Beat 123 (6:30, ~4.1s)
+[Script Segment] "With visors shut against the arrows, they could barely see or breathe."
+Image Prompt: A closed visor in extreme close-up with breath vapour seeping from its narrow eye slits and breathing holes, raindrops on the steel. Slow push-in toward the slits. Camera: macro close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: suffocating. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: suffocating
+Action: Slow push-in toward the slits
+
+Beat 124 (6:34, ~1.7s)
+[Script Segment] "The men behind kept pushing,"
+Image Prompt: Rows of armoured figures seen from behind pressing forward into the backs of the men in front, the rear ranks still pushing. Slow push-in through the ranks. Camera: rear low angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: crushing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: rear low angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: crushing
+Action: Slow push-in through the ranks
+
+Beat 125 (6:36, ~4.1s)
+[Script Segment] "until the front ranks were packed too tightly to swing their weapons."
+Image Prompt: From directly above, a tightly packed mass of armoured figures at the front of the line, no space between them, weapons jammed upright. Slow overhead crane down. Camera: top-down high angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: claustrophobic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: top-down high angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: claustrophobic
+Action: Slow overhead crane down
+
+Beat 126 (6:40, ~2.4s)
+[Script Segment] "When the English archers dropped their bows"
+Image Prompt: An English longbow dropped on trampled grass beside an empty arrow bag, wooden stakes angled behind it. Slow push-in toward the dropped bow. Camera: low close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: turning point. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: turning point
+Action: Slow push-in toward the dropped bow
+
+Beat 127 (6:43, ~3.8s)
+[Script Segment] "and attacked with swords and mallets, thousands of French knights died."
+Image Prompt: Short swords, hatchets and heavy wooden mallets lying in the mud beside fallen knights' helmets, rain falling on the steel. Slow lateral slide across the weapons. Camera: high 3/4 angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: tragic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: tragic
+Action: Slow lateral slide across the weapons
+
+Beat 128 (6:46, ~2.4s)
+[Script Segment] "A shield would not have saved them."
+Image Prompt: A broken heater shield lying uselessly in the trampled mud among fallen helmets, its painted arms smeared with dirt. Slow push-in. Camera: low angle close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: futile. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: futile
+Action: Slow push-in
+
+Beat 129 (6:49, ~2.8s)
+[Script Segment] "Plate had won its war against the arrow."
+Image Prompt: A pile of spent arrows heaped beside an intact polished breastplate, not one of them having pierced it. Slow orbit around the pile. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: victorious, ironic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: victorious, ironic
+Action: Slow orbit around the pile
+
+Beat 130 (6:52, ~2.8s)
+[Script Segment] "It was about to lose a new one."
+Image Prompt: A matchlock musket barrel sliding into frame from the shadows, its muzzle aimed at a polished breastplate on a stand. Rack focus from the breastplate to the muzzle. Camera: low side angle. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: ominous. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: ominous
+Action: Rack focus from the breastplate to the muzzle
+
+Beat 131 (6:54, ~4.1s)
+[Script Segment] "By the early 1500s, guns had reached the battlefield in large numbers."
+Image Prompt: A wooden rack of early matchlock arquebuses with powder flasks and coils of slow match in a dark armoury, a faint wisp of smoke in the air. Slow lateral slide along the rack. Camera: eye-level close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: transformation. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: transformation
+Action: Slow lateral slide along the rack
+
+Beat 132 (6:59, ~3.8s)
+[Script Segment] "A longbow arrow strikes with roughly one hundred joules of energy."
+Image Prompt: A single English war arrow lying on dark wood beside a short faint glowing bar of light representing its energy. Slow push-in along the arrow. Camera: macro close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: technical, measured. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: technical, measured
+Action: Slow push-in along the arrow
+
+Beat 133 (7:02, ~2.8s)
+[Script Segment] "A musket ball carries more than two thousand."
+Image Prompt: A lead musket ball placed beside the same arrow, a glowing energy bar beside it twenty times longer, stretching off into the darkness. Rack focus from the arrow to the musket ball. Camera: macro close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: shocking. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: shocking
+Action: Rack focus from the arrow to the musket ball
+
+Beat 134 (7:05, ~3.1s)
+[Script Segment] "To survive, breastplates had to grow thicker and heavier."
+Image Prompt: Cross-sections of a thin fifteenth-century breastplate and a much thicker seventeenth-century breastplate side by side on dark wood. Slow orbit around the two edges. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: escalation. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: escalation
+Action: Slow orbit around the two edges
+
+Beat 135 (7:08, ~3.4s)
+[Script Segment] "Some cavalry armour of the 1600s weighed around forty kilograms,"
+Image Prompt: A heavy seventeenth-century cuirassier armour on a stand, thick blackened plates and a lobster-tail helmet, far bulkier than earlier suits. Slow upward tilt from the thighs to the helmet. Camera: low angle, medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: burdensome. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle, medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: burdensome
+Action: Slow upward tilt from the thighs to the helmet
+
+Beat 136 (7:12, ~3.8s)
+[Script Segment] "far more than a full suit of white armour ever had."
+Image Prompt: An old brass balance scale with the cuirassier armour on one pan sinking low and a polished white armour harness on the other pan rising high. Slow push-in toward the tipped beam. Camera: eye-level medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: comparison. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: comparison
+Action: Slow push-in toward the tipped beam
+
+Beat 137 (7:15, ~3.4s)
+[Script Segment] "Armourers tested each breastplate by firing a pistol at it,"
+Image Prompt: A flintlock pistol on a wooden test stand aimed at a breastplate a few paces away, a cloud of white powder smoke hanging after the shot. Slow push-in through the smoke. Camera: low side angle. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: testing, tense. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: testing, tense
+Action: Slow push-in through the smoke
+
+Beat 138 (7:19, ~3.8s)
+[Script Segment] "and if it held, the dent was left as a mark."
+Image Prompt: Macro of a round bullet dent pressed into a breastplate, the steel pushed inward but not pierced, a flattened lead ball on the table below. Slow push-in toward the dent. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: proven. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: proven
+Action: Slow push-in toward the dent
+
+Beat 139 (7:23, ~2.1s)
+[Script Segment] "Armour that passed was called proof."
+Image Prompt: A small stamped armourer's mark beside the bullet dent on the breastplate, the letters worn but legible as a maker's stamp. Slow push-in toward the stamp. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: certified. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: certified
+Action: Slow push-in toward the stamp
+
+Beat 140 (7:25, ~3.4s)
+[Script Segment] "Centuries later, the same idea gave us the word bulletproof."
+Image Prompt: An old leather-bound dictionary open beside a dented breastplate, the page lit by a single candle, the word itself out of focus. Rack focus from the breastplate's dent to the dictionary page. Camera: high 3/4 angle close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: surprising, connective. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: surprising, connective
+Action: Rack focus from the breastplate's dent to the dictionary page
+
+Beat 141 (7:28, ~2.1s)
+[Script Segment] "For a moment, the shield returned."
+Image Prompt: A round steel rodela shield on a museum stand catching a single beam of light, its central boss gleaming, as if the shield has stepped back into history. Slow push-in toward the boss. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: revival. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: revival
+Action: Slow push-in toward the boss
+
+Beat 142 (7:30, ~2.1s)
+[Script Segment] "Spanish soldiers called rodeleros, the shield-bearers,"
+Image Prompt: Several Spanish rodela shields with etched steel faces hanging on a stone armoury wall beside swords in leather scabbards. Slow lateral slide along the wall. Camera: eye-level close-up. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: bold, Spanish. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: bold, Spanish
+Action: Slow lateral slide along the wall
+
+Beat 143 (7:32, ~2.1s)
+[Script Segment] "carried round steel shields and swords,"
+Image Prompt: A rodela and a Spanish sword crossed on a dark table, the shield's etched rim and the sword's swept hilt glinting. Slow orbit around the pair. Camera: high 3/4 angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: daring. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: daring
+Action: Slow orbit around the pair
+
+Beat 144 (7:34, ~3.1s)
+[Script Segment] "slipping beneath enemy pikes to fight at close range."
+Image Prompt: A pike block diorama with long pikes levelled forward and tiny shield-bearing figures crouching low beneath the shafts to get in close. Slow push-in under the pike shafts. Camera: low angle, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: daring, cunning. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: low angle, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: daring, cunning
+Action: Slow push-in under the pike shafts
+
+Beat 145 (7:37, ~1.4s)
+[Script Segment] "But it couldn't last."
+Image Prompt: An abandoned rodela lying in long grass, rust spreading across its face, a dropped pike shaft beside it. Slow push-in. Camera: low angle close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: ending. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: ending
+Action: Slow push-in
+
+Beat 146 (7:39, ~2.4s)
+[Script Segment] "Muskets grew more powerful, armour grew heavier,"
+Image Prompt: A row of muskets on a dark table from a slim early arquebus to a long heavy musket with a forked rest, each larger than the last. Slow lateral slide along the row. Camera: low side angle, deep perspective. Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints. Mood: escalation. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle, deep perspective
+Lighting: warm flickering candle or firelight from one side, deep shadows, brass glints
+Mood: escalation
+Action: Slow lateral slide along the row
+
+Beat 147 (7:41, ~4.8s)
+[Script Segment] "and soldiers stripped it off piece by piece, first the legs, then the arms."
+Image Prompt: Pieces of discarded leg armour lying in a muddy road diorama, and further along, discarded arm armour, a trail of abandoned steel. Slow lateral slide following the trail. Camera: high 3/4 angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: abandonment. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high 3/4 angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: abandonment
+Action: Slow lateral slide following the trail
+
+Beat 148 (7:46, ~3.8s)
+[Script Segment] "By the early 1700s, most infantry wore no armour at all."
+Image Prompt: An eighteenth-century red wool infantry coat with brass buttons on a museum stand, no armour anywhere on it. Slow push-in toward the bare chest of the coat. Camera: eye-level medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: vulnerable. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: vulnerable
+Action: Slow push-in toward the bare chest of the coat
+
+Beat 149 (7:50, ~3.8s)
+[Script Segment] "And with nothing left to protect, the shield vanished with it."
+Image Prompt: An empty iron shield hook on a stone wall, a pale outline in the dust where a shield once hung for years. Slow push-in toward the outline. Camera: macro close-up. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: absence. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: absence
+Action: Slow push-in toward the outline
+
+Beat 150 (7:54, ~4.1s)
+[Script Segment] "For two hundred years, the battlefield belonged to soldiers in cloth uniforms,"
+Image Prompt: A long museum case of cloth military uniforms from the eighteenth and nineteenth centuries in muted reds, blues and greys. Slow lateral slide along the case. Camera: eye-level close-up, shallow depth of field. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: passage of time. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up, shallow depth of field
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: passage of time
+Action: Slow lateral slide along the case
+
+Beat 151 (7:58, ~2.4s)
+[Script Segment] "wearing nothing that could stop a bullet."
+Image Prompt: A lead musket ball resting on a fold of soft wool uniform fabric, nothing between them. Slow push-in. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: vulnerable. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: vulnerable
+Action: Slow push-in
+
+Beat 152 (8:00, ~2.1s)
+[Script Segment] "Then came the First World War."
+Image Prompt: A First World War steel Brodie helmet resting on rusted barbed wire above a muddy trench diorama. Slow push-in toward the helmet. Camera: low angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: grim. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: grim
+Action: Slow push-in toward the helmet
+
+Beat 153 (8:02, ~3.8s)
+[Script Segment] "Machine guns and artillery turned open ground into a killing zone."
+Image Prompt: A First World War machine gun fitted with an armoured gun shield in a trench diorama, shell craters and shattered trees across no man's land. Slow orbit around the gun. Camera: low side angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: deadly. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: deadly
+Action: Slow orbit around the gun
+
+Beat 154 (8:06, ~2.8s)
+[Script Segment] "Snipers hid behind steel plates with narrow loopholes,"
+Image Prompt: A steel sniper loophole plate set into a sandbag trench wall, its narrow slot glowing faintly with grey daylight. Slow push-in toward the loophole. Camera: macro close-up. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: watchful. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: watchful
+Action: Slow push-in toward the loophole
+
+Beat 155 (8:09, ~3.4s)
+[Script Segment] "and some soldiers dragged heavy steel shields toward enemy trenches."
+Image Prompt: A heavy steel trench shield on wooden skids being dragged through deep mud toward barbed wire in a diorama. Slow lateral slide following the shield. Camera: low side angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: desperate. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: desperate
+Action: Slow lateral slide following the shield
+
+Beat 156 (8:12, ~4.1s)
+[Script Segment] "But they were too heavy to advance with, and most were abandoned."
+Image Prompt: An abandoned steel trench shield half sunk in a flooded shell crater, rain rippling the water around it. Slow pull-back. Camera: high wide angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: futile. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high wide angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: futile
+Action: Slow pull-back
+
+Beat 157 (8:16, ~2.4s)
+[Script Segment] "The shield had come back too early."
+Image Prompt: A scarred First World War trench shield on a dark table, its thick plate dented, a large empty space of light beside it. Slow push-in. Camera: eye-level close-up. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: premature. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: premature
+Action: Slow push-in
+
+Beat 158 (8:19, ~2.4s)
+[Script Segment] "The material it needed didn't exist yet."
+Image Prompt: An empty laboratory shelf with dust and blank glass jars waiting to be filled. Slow lateral slide along the shelf. Camera: eye-level close-up. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: anticipation. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: anticipation
+Action: Slow lateral slide along the shelf
+
+Beat 159 (8:21, ~2.8s)
+[Script Segment] "In 1965, at DuPont in the United States,"
+Image Prompt: A 1960s laboratory bench with glass flasks, beakers, a notebook and a DuPont-era lab coat folded on a stool, lit by a cold lamp. Slow lateral slide across the bench. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: scientific. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: scientific
+Action: Slow lateral slide across the bench
+
+Beat 160 (8:24, ~2.8s)
+[Script Segment] "a chemist named Stephanie Kwolek discovered a fibre"
+Image Prompt: A glass flask of cloudy liquid crystal solution beside a spool of fine golden yellow fibre on the lab bench, a handwritten notebook open beside it. Slow push-in toward the fibre. Camera: macro close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: discovery. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: discovery
+Action: Slow push-in toward the fibre
+
+Beat 161 (8:27, ~2.8s)
+[Script Segment] "five times stronger than steel by weight, Kevlar."
+Image Prompt: A woven panel of yellow aramid fabric on one pan of a brass balance and a short steel bar on the other. Rack focus from the fabric to the steel. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: astonishing. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: astonishing
+Action: Rack focus from the fabric to the steel
+
+Beat 162 (8:30, ~4.5s)
+[Script Segment] "Around the same time, clear polycarbonate plastic made shields light enough to carry"
+Image Prompt: A clear polycarbonate riot shield standing upright on a dark table, light passing through it and casting a soft shadow. Slow orbit around the shield. Camera: eye-level medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: modern. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: modern
+Action: Slow orbit around the shield
+
+Beat 163 (8:34, ~2.8s)
+[Script Segment] "and tough enough to stop stones and bottles."
+Image Prompt: A scuffed clear riot shield with a shattered glass bottle and a broken paving stone lying at its base. Slow push-in toward the scuffs. Camera: low angle close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: tough. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: tough
+Action: Slow push-in toward the scuffs
+
+Beat 164 (8:37, ~2.1s)
+[Script Segment] "In 1977, at Lewisham in London,"
+Image Prompt: A London street diorama at night in the late 1970s, wet tarmac reflecting sodium streetlights, terraced houses lining the road. Slow push-in down the street. Camera: low eye-level angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: tense, historic. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low eye-level angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: tense, historic
+Action: Slow push-in down the street
+
+Beat 165 (8:39, ~4.1s)
+[Script Segment] "British police used riot shields on the mainland for the first time."
+Image Prompt: A row of clear riot shields lined up across the London street diorama, streetlight glinting off their scratched surfaces. Slow lateral slide along the line of shields. Camera: low side angle. Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges. Mood: confrontational. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: cold grey backlight through drifting haze and rain mist, faint light shafts, silhouetted edges
+Mood: confrontational
+Action: Slow lateral slide along the line of shields
+
+Beat 166 (8:43, ~3.4s)
+[Script Segment] "Today, police tactical teams move through doorways behind ballistic shields"
+Image Prompt: A matte black ballistic shield with a narrow armoured viewing window placed in a doorway diorama of a modern building. Slow push-in toward the window. Camera: eye-level close-up. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: tactical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level close-up
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: tactical
+Action: Slow push-in toward the window
+
+Beat 167 (8:46, ~3.8s)
+[Script Segment] "made of layered fibres and plastic, able to stop handgun rounds"
+Image Prompt: A cutaway of a ballistic shield revealing stacked layers of woven fibre and pressed polyethylene sheets. Slow orbit around the cut edge. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: technical. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: technical
+Action: Slow orbit around the cut edge
+
+Beat 168 (8:50, ~2.8s)
+[Script Segment] "at about the weight of a Roman scutum."
+Image Prompt: An old brass balance scale holding a modern ballistic shield on one pan and a Roman scutum on the other, the beam perfectly level. Rack focus from the scutum to the ballistic shield. Camera: eye-level medium shot. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: full circle. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: full circle
+Action: Rack focus from the scutum to the ballistic shield
+
+Beat 169 (8:53, ~3.4s)
+[Script Segment] "And they work in a completely different way from steel."
+Image Prompt: A split composition: a bullet glancing off a steel plate on the left, and a bullet sinking into a fibre panel on the right. Slow-motion push-in. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: contrast. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: contrast
+Action: Slow-motion push-in
+
+Beat 170 (8:56, ~4.8s)
+[Script Segment] "Instead of deflecting a bullet, their layers of fibre catch it like a net,"
+Image Prompt: A slow-motion bullet caught in layered fibres that bulge and wrap around it like a net. Slow-motion push-in toward the impact. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: fascinating. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: fascinating
+Action: Slow-motion push-in toward the impact
+
+Beat 171 (9:01, ~4.1s)
+[Script Segment] "stretching and spreading its energy across a wide area until it stops."
+Image Prompt: Fibres stretching outward from the impact point in a wide ring, the energy rippling across the whole panel and fading at the edges. Slow orbit around the ring. Camera: macro close-up. Lighting: low raking side light from the right, long soft shadows, specular glints along edges. Mood: technical, satisfying. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: macro close-up
+Lighting: low raking side light from the right, long soft shadows, specular glints along edges
+Mood: technical, satisfying
+Action: Slow orbit around the ring
+
+Beat 172 (9:05, ~4.1s)
+[Script Segment] "The teams advance in a tight column, one shield at the front,"
+Image Prompt: A diorama of a tactical team in a tight column behind a single ballistic shield in a narrow corridor, a door ahead. Slow push-in toward the lead shield. Camera: low angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: disciplined. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: disciplined
+Action: Slow push-in toward the lead shield
+
+Beat 173 (9:10, ~2.8s)
+[Script Segment] "every man depending on the one beside him."
+Image Prompt: Miniature tactical figures pressed close behind the lead shield, each one touching the shoulder of the one in front. Slow lateral slide along the column. Camera: rear eye-level angle. Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges. Mood: interdependent. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no real people (faceless miniature figures only), no text, no watermark, 16:9.
+Camera Angle: rear eye-level angle
+Lighting: single soft key light from upper left, steep falloff into near-black, crisp rim highlights on metal edges
+Mood: interdependent
+Action: Slow lateral slide along the column
+
+Beat 174 (9:12, ~3.8s)
+[Script Segment] "Almost exactly like the soldiers on the Stele of the Vultures,"
+Image Prompt: The Stele of the Vultures relief displayed beside a modern ballistic shield in a museum case, the packed carved soldiers echoing the shield column. Rack focus from the stele to the shield. Camera: eye-level medium shot. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: echo. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: eye-level medium shot
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: echo
+Action: Rack focus from the stele to the shield
+
+Beat 175 (9:16, ~2.4s)
+[Script Segment] "four and a half thousand years ago."
+Image Prompt: The ancient carved stele fading slowly into darkness as the light dims around it. Slow pull-back. Camera: high wide angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: timeless. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: high wide angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: timeless
+Action: Slow pull-back
+
+Beat 176 (9:19, ~2.1s)
+[Script Segment] "The armour changed. The weapons changed."
+Image Prompt: A row of armour from bronze to modern, each piece in its own pool of light, each light dimming in turn. Slow lateral slide along the row. Camera: low side angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: reflective. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: reflective
+Action: Slow lateral slide along the row
+
+Beat 177 (9:21, ~4.1s)
+[Script Segment] "But every time armour couldn't stop the threat, the shield came back."
+Image Prompt: The full lineup of shields from Sumerian leather to modern ballistic, the last light lingering on the modern shield at the end of the table. Slow pull-back to wide. Camera: low side angle. Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black. Mood: resolution, quiet triumph. Visual style: Dark Archive Macro, a photoreal 3D CGI render in a museum-artifact still-life look, desaturated palette of charcoal, graphite, worn brown wood, aged steel and dull bronze with warm brass accents, slight cool green-grey in the shadows, faint atmospheric haze, crisp specular highlights, extremely high surface detail (scratches, tool marks, oxidation, wood grain), deep dark negative space, no people, no text, no watermark, 16:9.
+Camera Angle: low side angle
+Lighting: narrow overhead spotlight forming a pool of light on the table, everything else falling into black
+Mood: resolution, quiet triumph
+Action: Slow pull-back to wide
