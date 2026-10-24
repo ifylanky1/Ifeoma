@@ -1,0 +1,397 @@
+[HOOK]
+
+Tonight, before the clock turns toward midnight, hear this. You are not alone in the dark. You are not unguarded while you sleep. You are not a sleeping house with the doors left open for anything that wanders in. Tonight, your night is covered by the blood of Jesus Christ. And every attack that has been waiting for the quiet hours is about to meet the God who never sleeps.
+
+You know the hour I am talking about. Three in the morning. The house is silent. Everyone is asleep. And suddenly your eyes open. Your heart is racing. The room feels heavy. You do not know why you are awake, but you know you are not at peace. Night after night it has come for your rest, your dreams, your mind, your marriage, your children, and your strength for tomorrow. Some of you have lived this way so long you think it is normal. It is not normal. It is not your portion. And tonight it ends.
+
+Not anymore. The same God who opened prison doors at midnight for Paul and Silas. The same God who walked on the water in the fourth watch of the night. The same God who looked down through the pillar of fire in the morning watch and threw the army of Egypt into confusion. That God is awake over your house tonight.
+
+It is written in Psalm 121 and verse 4. Behold, he that keepeth Israel shall neither slumber nor sleep.
+
+So hear me, every power of darkness that has been working the night shift against this life. Your hours are over. The watch has changed. Tonight, the One who never sleeps is standing at the door. And you will not get past him.
+
+[THE NIGHTLY WATCH]
+
+Before we go any further, I want to ask you for something, because it will make all the difference. Make this prayer part of your night. Play it every night before you sleep, and let it keep playing while you rest. Seven nights. Then fourteen. Then thirty.
+
+Here is why. The attacks of the night are rarely one loud event. They are a pattern. The same hour. The same heaviness. The same kind of dream. A pattern is not broken by one prayer and then silence. A pattern is broken by a new pattern. When you cover your nights again and again, you are building a new rhythm in your home. Not fear at three in the morning, but peace. Not torment in the dark, but rest.
+
+Many who make this a nightly habit begin to notice the difference. Some find they wake less often. Some find the heaviness lifts from the room. Some find their dreams grow quieter. It does not come from the sound of a voice on a speaker. It comes from the Word of God being spoken over your night, night after night, until the darkness learns it has no place there.
+
+Let me tell you about the most powerful midnight in the New Testament. Paul and Silas were in the city of Philippi. They had set a young woman free from a spirit of divination, and the men who had made money from her were furious. They dragged Paul and Silas before the rulers. The crowd rose up against them. They were stripped and beaten with many stripes. Then they were thrown into the inner prison, the deepest and darkest part, and their feet were fastened in the stocks.
+
+Think about that night. Bleeding backs. Locked feet. Stone walls. No light. No help coming. If ever two men had a reason to lie awake in fear, it was them.
+
+But it is written in Acts 16 and verses 25 and 26. And at midnight Paul and Silas prayed, and sang praises unto God: and the prisoners heard them. And suddenly there was a great earthquake, so that the foundations of the prison were shaken: and immediately all the doors were opened, and every one's bands were loosed.
+
+Did you hear what happened at midnight? They did not wait for morning to fight. They prayed at midnight. They praised at midnight. And at midnight, heaven answered. The foundations shook. Every door opened. Every chain fell off. And not only their chains. Every one's bands were loosed. Everyone in that prison was set free from their chains because two men decided to pray in the dark.
+
+That is what tonight is. You may feel like you are lying in the inner prison. Worries locked around your feet. The night pressing in on every side. But your midnight is about to become a place of breakthrough. When you pray in the dark, the foundations of darkness shake. And when your chains fall, the people around you are touched too.
+
+So keep this watch with me, night after night. Midnight is not the enemy's hour anymore. It is yours.
+
+[THE FOURTH WATCH]
+
+Now listen closely, because there is a weapon the enemy of your soul does not want you to know about. He prefers the night because he thinks you are defenseless there. He waits until your guard is down. Until your body is tired. Until your mind is drifting. Until you have stopped praying and started sleeping. He thinks the night belongs to him.
+
+But there is one thing the darkness has never been able to overcome. Not your strength. Not your alertness. It is the God who keeps watch while you sleep, and the Word he has given you to speak.
+
+In Bible times, the night was divided into watches. The guards on the city wall took turns through the dark hours. And the last watch, the hardest one, ran from about three in the morning until the sun came up. It was called the fourth watch. It was the coldest, darkest, most exhausted part of the night. And it is written in Matthew 14 and verse 25. And in the fourth watch of the night Jesus went unto them, walking on the sea.
+
+The disciples had been rowing against the wind for hours. The storm was winning. They were worn out. And in the fourth watch, at the very hour you keep waking up, Jesus came walking on top of the thing that was trying to drown them.
+
+So the hour the enemy has been using to torment you is the very hour Jesus chose to come across the water. Your three in the morning is not his territory. It belongs to Christ. And notice what he told them when they cried out in fear. He told them to take courage, that it was him, and not to be afraid. He did not come to frighten them. He came to save them. Whatever you have felt in the room at three in the morning, the presence of Jesus is not the thing to fear. His presence is what ends the fear.
+
+And here is the promise that holds it all together. It is written in Psalm 121 and verse 4. Behold, he that keepeth Israel shall neither slumber nor sleep.
+
+You will sleep. You must sleep. God made your body to rest. But the One who keeps you does not. While your eyes are closed, his eyes are open. While your hands are still, his hands are on your house. You do not have to stay awake to stay safe. You have to stay covered.
+
+So say this with me. Say it out loud, right where you are lying. Let your voice fill the room. The Lord who keeps me does not slumber. The Lord who keeps me does not sleep. My night belongs to Jesus Christ. My three in the morning belongs to Jesus Christ. Every attack that waits for the dark meets the God who never closes his eyes. I am covered by the blood of Jesus. I lie down in peace, and I rise in peace, because the Lord sustains me.
+
+[THE COVERING]
+
+Father, in the name of Jesus Christ, we lift this child of God before you tonight. You know the bed they are lying in. You know the hour they keep waking. You know the dreams that have troubled them and the fears that have followed them into the dark. You know how long it has been since they slept through the night in peace. We bring all of it to you now.
+
+Lord, cover this child of God through every watch of the night. Through the first watch, as they lie down. Through the second watch, as they sink into sleep. Through the third watch, the middle of the night, when the house is silent. And through the fourth watch, the hours before the dawn. Let there be no hour of this night that is not under your hand.
+
+We lift this household too. The husband and the wife lying side by side. The children in their beds, small and trusting. The teenagers who stay awake too long. The elderly parent who wakes often and cannot settle. The one who sleeps alone and listens to every sound in the house. Cover them all, Lord. Cover every bed. Cover every pillow. Cover every breath. Cover the ones who work the night shift and sleep in the day. Cover the mother who is up with a newborn. Cover the one in a hospital bed tonight, and the one sitting beside them. Every kind of night, Lord, cover it.
+
+Where the night has brought fear, bring your peace. Where it has brought heaviness, bring lightness. Where it has brought torment, bring rest. Where it has brought confusion, bring a clear and quiet mind. And where the body is weary or unwell, strengthen it, Lord, and bless every good help you send, from your own hand and through the hands of those who care for them.
+
+Station your angels around this house tonight. One at every door. One at every window. One at the foot of every bed. It is written in Psalm 34 and verse 7. The angel of the LORD encampeth round about them that fear him, and delivereth them. Let the angel of the Lord set up camp around this home tonight, and let no power of darkness come near.
+
+And it is written in Psalm 3 and verse 5. I laid me down and slept; I awaked; for the LORD sustained me.
+
+Let it be so tonight. Let this child of God lie down and sleep. Let them wake in the morning, and let them know it was the Lord who sustained them.
+
+Now say it with me, as your own. Lord, I give you every watch of this night. I give you my bed. I give you my dreams. I give you my family. I will lie down and sleep. I will wake in peace. And I will know that you sustained me. My night is covered by the blood of Jesus.
+
+[BRIDGE]
+
+Now we walk through the night, watch by watch. From this moment, every line I speak, speak it as your own. Say it aloud if you are awake. Whisper it if your family is sleeping. Pray it in your heart if your eyes are already closing. Your spirit hears, and heaven hears. We are going to confront every attack that comes in the dark, one by one. We are going to take back the midnight hours. And we are going to hand every watch of this night to the God who never sleeps. Not by our strength. By the blood of Jesus and by the Word of the living God. Now rise. The night is the Lord's.
+
+[WAVE 1 — THE THREE O'CLOCK ALARM]
+
+I break the alarm of darkness that wakes me in the night, and I cancel every assignment set for the third hour of the morning. The sudden waking with a pounding heart. The jolt out of sleep for no reason. The heaviness waiting in the room when my eyes open. The racing thoughts that start the moment I am awake. The long hours staring at the ceiling until dawn. I name this pattern tonight, and I end it tonight.
+
+Every spirit assigned to wake me in fear, I bind you in the name of Jesus. You will not set the clock of my night. You will not decide when I wake and when I sleep. The blood of Jesus covers my rest from the first watch to the last. My body will rest. My mind will rest. My spirit will rest in the Lord. I am not the night watchman of my own house. I do not have to listen for every sound. I do not have to lie stiff in the dark, waiting for the next thing. The One who keeps me is on duty, and he has never missed a single hour.
+
+It is written in Psalm 91 and verses 5 and 6. Thou shalt not be afraid for the terror by night; nor for the arrow that flieth by day; Nor for the pestilence that walketh in darkness; nor for the destruction that wasteth at noonday.
+
+I take this word as a sword and I hold it over my bed. The terror by night has no hour here. The thing that walks in darkness has no path here. I will not be afraid at midnight. I will not be afraid at three. I will not be afraid at all.
+
+And if I wake in the night, I will not wake to fear. I will wake to prayer. I will turn every waking hour into worship, the way Paul and Silas did. And the darkness will regret ever waking me.
+
+Night alarm, be silenced. Three o'clock attack, be cancelled. Racing heart, be still. Heaviness, leave my room. Sleepless pattern, be broken. Sweet rest, return to me.
+
+He that keeps me shall neither slumber nor sleep. So I will sleep, and he will keep.
+
+[WAVE 2 — SEEDS SOWN WHILE I SLEPT]
+
+I uproot every seed the enemy has sown in my life while I slept, and I burn every tare planted in the field of my destiny. The seed of fear planted in a dream. The seed of sickness spoken in the night. The seed of division slipped into my home in the dark. The seed of lack sown into my work. The seed of strange desires planted in my heart. Tonight, the light of God shines on every one of them.
+
+What was planted without my permission is pulled out by the root. What grew in the dark is exposed in the light. Every evil seed that has been growing in my life, I command you to wither now. You will not bear fruit. You will not produce a harvest. The fire of God passes through my field and burns you to ash. And where those seeds have already grown into habits, into fears, into patterns I did not choose, I pull them out too. Root and stem. Branch and leaf. I will not carry into tomorrow anything that darkness planted in me tonight.
+
+It is written in Matthew 13 and verse 25. But while men slept, his enemy came and sowed tares among the wheat, and went his way.
+
+I hold this word up like a lamp over the field of my life. The enemy came while men slept. But I am not sleeping unprotected anymore. The Lord of the harvest is watching my field. Nothing will be sown in my life tonight that he did not plant.
+
+Every power that comes in the night to sow evil in my life, be driven from my field. Every sower of darkness, be stopped in your work. And every good seed God has planted in me, grow now. Grow strong. Grow fast. Grow beyond the reach of the enemy.
+
+Tare, be uprooted. Evil seed, wither. Night planting, be cancelled. Strange harvest, never come. Good seed, grow. Field of my life, be cleansed by fire.
+
+My field belongs to God. What he planted will stand, and what he did not plant will be pulled up tonight.
+
+[WAVE 3 — THE WEIGHT ON THE CHEST]
+
+I break every power that presses on me in my sleep, and I lift off every weight that holds me down in the night. The heaviness on my chest. The feeling of being pinned to the bed. The moment I try to cry out and my voice will not come. The sense of a presence in the room that will not leave. The fear that freezes me before I am fully awake. I refuse it all tonight.
+
+Every spirit of oppression that comes to sit on me in the night, I command you to get off me now. I am not your resting place. I am the temple of the Holy Ghost. The blood of Jesus covers my chest, my throat, my breath, and my bed. When I call on the name of Jesus, even in a whisper, even in my thoughts, heaven moves. And you must flee. That weight has no right to my body. It has no right to my breath. It has no right to my rest. I have been afraid of it long enough. Tonight the fear changes sides. Tonight the pressing spirit is the one that trembles, because it has met the blood.
+
+It is written in Isaiah 54 and verse 14. In righteousness shalt thou be established: thou shalt be far from oppression; for thou shalt not fear: and from terror; for it shall not come near thee.
+
+I lift this word like a shield over my body. I am established in righteousness. I am far from oppression. I am far from terror. It shall not come near me. Not near my chest. Not near my bed. Not near my breath.
+
+So if I ever feel that weight again, I will not panic. I will say one name. Jesus. And the name of Jesus will be enough.
+
+Oppression, lift. Heaviness, break. Pressing spirit, flee. Frozen voice, be loosed. Presence of darkness, leave this room. Breath of God, fill my lungs.
+
+I am far from oppression. Terror shall not come near me. I sleep free.
+
+[WAVE 4 — THE DREAM INVADERS]
+
+Tonight I close the gates of my dreams to every invader, and I cancel every attack that comes against me in my sleep. The dream of being chased and never escaping. The dream of being bitten, beaten, or held. The dream of eating and drinking at a table I did not choose. The dream of water rising, of falling, of being lost in a strange place. The dream of being back in an old house, an old school, an old season I left behind. I reject them all.
+
+My dreams are not a battlefield where I lie defenseless. The blood of Jesus covers my mind while I sleep. Every dream sent to bring fear, I cancel it before it plays. Every dream sent to take me backward, I reverse it. Every evil food offered in a dream, I refuse it by the blood. And every dream that comes from God, I receive it with joy and I keep it. I ask the Holy Spirit to guard my imagination while I sleep. Let my dreams be clean. Let my dreams be peaceful. Let God speak to me in the night the way he spoke to Joseph and to Daniel, and let every other voice be silent.
+
+It is written again in Psalm 3 and verse 5. I laid me down and slept; I awaked; for the LORD sustained me.
+
+I set this word as a guard at the door of my dreams. I lay down. I slept. I woke. And between the lying down and the waking, the Lord sustained me. Not the enemy. Not fear. The Lord.
+
+Every arrow fired into my dream life, go back to the darkness that released you. Every dream manipulator, lose your access. Every dream that came to steal, return what you took.
+
+Dream invader, be expelled. Chasing spirit, be stopped. Evil table, be overturned. Backward dream, be reversed. Strange place, release me. Holy dreams, come.
+
+I lie down. I sleep. I wake. And the Lord sustains me.
+
+[WAVE 5 — UNCLEAN NIGHT VISITORS]
+
+I cut off every unclean spirit that visits me in the night, and I break every false covenant formed with darkness in my sleep. The visitor that comes as a husband or a wife in the dream. The unclean touch in the night. The spirit that leaves shame behind when I wake. The night companion I never chose. The bond that formed in a dream and followed me into my days, into my relationships, and into my marriage. I renounce it tonight.
+
+I belong to Jesus Christ. My body is bought with a price. No spirit of darkness has a claim on me. Every ring, every vow, every exchange made in the dream, I cancel it by the blood of Jesus. Every mark left on me in the night, I wash it away by the blood. Every door that let you in, I shut it now and I seal it with fire. Every relationship that has failed because of this hidden bond, receive restoration. Every delay in marriage it has caused, be broken. Every coldness it has brought into my home, melt away. I am set apart for God, for the covenant he blesses, and for nothing else.
+
+It is written in Luke 10 and verse 19. Behold, I give unto you power to tread on serpents and scorpions, and over all the power of the enemy: and nothing shall by any means hurt you.
+
+I stand on this word like solid ground. I have power over all the power of the enemy. Not some. All. So every unclean visitor is under my feet tonight. You will not visit again. You will not touch again. You will not return.
+
+Every unclean spirit, return to the darkness you came from. Every false bond, be broken forever. And let the shame you brought be replaced with the clean joy of the Holy Ghost.
+
+Unclean visitor, be cut off. False covenant, be cancelled. Dream ring, be broken. Shame, lift off me. Door of access, be sealed. Holy Spirit, fill my nights.
+
+My body belongs to God. My nights belong to God. Nothing shall by any means hurt me.
+
+[WAVE 6 — THE CHILDREN'S NIGHTS]
+
+I cover my children through every hour of the night, and I break every attack aimed at their sleep. The child who wakes up screaming. The child who is afraid of the dark. The child who sees things in the room that no one else sees. The child who cannot fall asleep unless the light stays on. The teenager on the phone at two in the morning, open to voices that do not love them. I stand at the door of every child's room tonight.
+
+The blood of Jesus covers my children's beds. The angels of the Lord stand guard over my children's rooms. Every spirit of fear sent against them, I bind you. Every night terror, I silence you. Every dark voice reaching for them through a screen in the night, I cut you off. My children will sleep. My children will rest. My children will grow up knowing the peace of God. Lord, where my children have already been frightened, comfort them. Where they have seen what they should never have seen, wash their memories with your peace. Let them lie down without fear. Let them wake up laughing. Let their rooms be the safest places in the world.
+
+It is written in Isaiah 54 and verse 13. And all thy children shall be taught of the LORD; and great shall be the peace of thy children.
+
+I wrap this word around my children like a warm blanket. They will be taught of the Lord. Not by fear. Not by darkness. Not by the voices of the night. And great shall be their peace. Not small peace. Great peace.
+
+Every arrow aimed at my children in the night, turn back now. Every fear planted in their young minds, be uprooted. And every child of mine who has wandered far, hear the voice of the Lord tonight, and come home.
+
+Night terror, be silenced. Fear of the dark, be broken. Dark voice, be cut off. Screaming in the night, stop. Peace of God, cover my children. Great peace, be their portion.
+
+My children are taught of the Lord. Great is their peace, tonight and every night.
+
+[WAVE 7 — MIDNIGHT MEETINGS OF DARKNESS]
+
+I scatter every midnight meeting of darkness held against my life, and I expose every plan made in the spirit while I slept. The gathering where my name was called. The plan drawn up in the night to stop my progress. The altar where something was offered against my family. The covenant made in the dark to hold my household down. The decision made in the spirit about my future without my consent. I overturn it all tonight.
+
+What was planned in the dark does not stay hidden from God. His eyes see through every wall. His light reaches every secret place. Every meeting of darkness concerning me, I scatter it by the fire of God. Every decision made against me, I overrule it by the blood of Jesus. Every altar raised in the night, I pull it down. The court of heaven has the final word over my life, and it is not the word of darkness. Let every mention of my name in a dark place be blotted out by the blood. Let every image of me held in darkness be shattered. Let every voice that called my name for evil lose its voice. My name is written in the Lamb's book of life, and that is the only book that decides my end.
+
+It is written in Psalm 139 and verse 12. Yea, the darkness hideth not from thee; but the night shineth as the day: the darkness and the light are both alike to thee.
+
+I speak this word like a floodlight over my life. The darkness does not hide from God. To him, midnight shines like noon. So every plan made in the night is seen in full daylight before the throne. And every one of them is cancelled.
+
+Every arrow planned at a midnight meeting, return to the darkness that planned you. Every altar speaking in the night, be silenced by the blood. Every covenant against my household, be broken forever.
+
+Midnight meeting, be scattered. Evil plan, be exposed. Dark decision, be overruled. Night altar, be pulled down. Covenant of darkness, be broken. Light of God, shine on my life.
+
+The night shines as the day before my God. Nothing planned in the dark against me will stand.
+
+[MID-PRAYER CALL]
+
+If you are still awake and still with me, do this right now, before we continue. Go to the comments and type this. My night is covered by the blood. Type it as a declaration of faith. Let it stand there as a witness that you have taken back your nights. And then share this prayer with one person who has been struggling to sleep. Someone who keeps waking in fear. Someone who dreads the dark. Send it to them tonight. Now, back to the watch.
+
+[WAVE 8 — FEAR AND ANXIETY IN THE NIGHT]
+
+I silence every voice of fear that speaks to me in the night, and I break every wave of anxiety that rises in the dark. The what-ifs that grow louder when the lights go out. The worry about money that keeps me turning. The fear for my health that grows bigger at midnight. The fear for my children, my marriage, my future. The thoughts that spiral faster and faster until I cannot breathe. I bring them all under the blood of Jesus tonight.
+
+Fear, you do not get to hold the microphone in my night. The peace of God is speaking now. Every lie that seems true at three in the morning, I expose it in the light of God's Word. Every worry I cannot fix tonight, I put into the hands of the One who can. My mind is not a playground for darkness. My mind is stayed on God. When I cannot stop thinking, I will start thanking. Thank you, Lord, for this bed. Thank you for this breath. Thank you for keeping me through every night before this one. Fear cannot breathe in a room full of thanksgiving.
+
+It is written in Isaiah 26 and verse 3. Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.
+
+I fasten this word over my mind like a helmet. Perfect peace. Not partial peace. Not peace that leaves at midnight. Perfect peace, because my mind is stayed on him, and because I trust in him.
+
+Every arrow of fear, return to the darkness that formed you. Every wave of anxiety, break against the rock of Christ and roll back. Every tormenting thought, be taken captive and made to obey Christ.
+
+Fear, be silent. Anxiety, break. Worry, be released to God. Spiral of thoughts, stop. Torment, be bound. Perfect peace, fill my mind.
+
+My mind is stayed on God. I trust in him. And he keeps me in perfect peace.
+
+[WAVE 9 — WHAT WAS STOLEN IN THE NIGHT]
+
+I demand the return of everything stolen from me in the night, and I recover every blessing taken while I slept. The money that slipped away after a strange dream. The opportunity that disappeared overnight. The joy I went to bed with that was gone by morning. The strength that drains out of me while I rest. The years that seem to have been eaten by something I could not see. Tonight, I go after it all.
+
+What the night thief took, he must return. The blood of Jesus has paid for my life in full, and nothing that belongs to me belongs to darkness. Every blessing held back in the enemy's storehouse, I command you to be released. Every door of favor that closed overnight, open again. Every lost season, be restored by the hand of God. I do not only ask for what was lost. I ask for what was meant to be. The promotion that was meant for me. The open door that was meant for me. The peace that was meant for me. Let it all come back, pressed down, shaken together, and running over.
+
+It is written in Joel 2 and verse 25. And I will restore to you the years that the locust hath eaten, the cankerworm, and the caterpillar, and the palmerworm, my great army which I sent among you.
+
+I plant this word in the ground of my life. God restores years. Not only days. Not only things. Years. What the locust ate, God restores. What the night stole, God returns.
+
+Every thief of the night, drop what you took and flee. Every arrow that came to drain my strength and my provision, return to the darkness that sent you. And let restoration flow into my life from this night forward.
+
+Night thief, be arrested. Stolen blessing, return. Lost opportunity, come back. Drained strength, be restored. Eaten years, be repaid. Favor of God, flow again.
+
+The Lord restores. I will not end where the thief left me. I will end where God restores me.
+
+[WAVE 10 — THE MARRIAGE BED]
+
+I cover my marriage through the night, and I break every attack sent to divide husband and wife in the dark. The argument that always starts at bedtime. The silence of two people lying side by side but far apart. The coldness that came from nowhere. The suspicion that whispers in the dark. The dream that turns one against the other. The spirit that wants one of us sleeping in another room. I stand against it tonight.
+
+My marriage is covered by the blood of Jesus. God is in the middle of this union, and what God holds together cannot be torn apart by the night. Every wedge of darkness driven between us, I pull it out. Every evil voice in our bedroom, I silence you. Where love has cooled, let it warm again. Where words have wounded, let healing come. Let us lie down at peace with each other and at peace with God.
+
+And for the one listening who is still waiting for a spouse, or who sleeps alone after loss, the Lord covers your nights too. You are not forgotten in the dark.
+
+It is written in Ecclesiastes 4 and verse 12. And if one prevail against him, two shall withstand him; and a threefold cord is not quickly broken.
+
+I bind this word around my home like a cord that will not snap. Husband. Wife. And God. A threefold cord. Not quickly broken. Not broken by the night. Not broken by darkness. And where there has been hurt between us, teach us to forgive before we sleep. Let us not give the night a foothold through anger left unspoken. Let us settle every quarrel before the sun goes down, and let the peace of God lie down between us.
+
+Every arrow aimed at my marriage, return to the spirit of division that sent you. Every attack on our bed, be cancelled by the blood.
+
+Strife, be silenced. Coldness, melt. Suspicion, be broken. Division, be cast out. Love, be rekindled. Threefold cord, hold strong.
+
+My marriage is held by God. What he holds, the night cannot break.
+
+[WAVE 11 — THE BODY AT NIGHT]
+
+I cover my body through the night, and I resist every attack of darkness against my health while I sleep. The pain that grows worse after dark. The sickness that seems to rise at night. The restlessness in my legs and arms. The breath that grows shallow. The weakness I wake up with. The fear of what my body is telling me. I bring my body under the blood of Jesus tonight.
+
+My body is the temple of the Holy Ghost. The blood of Jesus flows over every organ, every cell, every bone, and every breath. Every spirit of affliction that walks in the darkness, I command you to leave my body. I speak strength into my weakness and peace into my pain. And every good help the Lord sends me, through prayer, through rest, through wise doctors and the right care, I receive with thanks, because every good gift comes from him. I will not lie awake listening to my own heartbeat in fear. I will lie still and listen for the voice of the Lord instead. And his voice says, I am with you. I formed you. I have not forgotten you in the night.
+
+It is written in Psalm 91 and verse 6. Nor for the pestilence that walketh in darkness; nor for the destruction that wasteth at noonday.
+
+I lay this word over my body like a gentle hand. I will not be afraid of the thing that walks in darkness. I will not be afraid of the thing that destroys at noon. My body is in the hands of the God who formed it.
+
+Every arrow of affliction sent in the night, return to the darkness that released you. Every pain, bow to the name of Jesus. Every fear about my health, be replaced with trust.
+
+Affliction, leave my body. Pain, be eased. Weakness, receive strength. Restlessness, be still. Fear of sickness, be cast out. Life of God, flow through me.
+
+My body is covered. My breath is covered. I rest in the hands of the One who made me.
+
+[WAVE 12 — THE MORNING WATCH]
+
+I release the God of the morning watch against every power that has pursued me, and I declare confusion in the camp of every enemy of my soul. The power that has chased me from one season to the next. The cycle that followed me from my father's house. The trouble that keeps catching up with me. The pursuer that will not let me go. Tonight, in the last watch of the night, the Lord looks down.
+
+When Israel stood trapped between the sea and the army of Egypt, God opened the waters. And as the pursuers came after them into the sea, God moved in the morning watch, the hours before dawn. He looked down through the pillar of fire, and the whole army fell into confusion. Their chariot wheels came off. They turned and tried to run. And the sea came back over them. Israel never saw those pursuers again.
+
+It is written in Exodus 14 and verse 24. And it came to pass, that in the morning watch the LORD looked unto the host of the Egyptians through the pillar of fire and of the cloud, and troubled the host of the Egyptians.
+
+I raise this word like a pillar of fire over my life. In the morning watch, the Lord looks down. And when the Lord looks down at what pursues me, it falls into confusion. Its wheels come off. It turns back. What has pursued my family from generation to generation, I declare its pursuit ends at the water. My grandparents could not shake it. My parents could not shake it. But it will not cross over into my children's lives. The sea closes behind me tonight.
+
+Every spirit of darkness pursuing my life, be troubled tonight by the look of the Lord. Every pursuing cycle, lose your wheels. Every chasing power, turn back and never be seen again.
+
+Pursuer, be confused. Chariot of darkness, lose your wheels. Old cycle, be drowned. Chasing trouble, turn back. Pillar of fire, stand over me. Way through the sea, open.
+
+The pursuers I see tonight, I will see no more. The Lord fights for me in the morning watch.
+
+[WAVE 13 — ANGELS ON THE NIGHT WATCH]
+
+I call on the Lord of hosts to station his angels around my home, and I declare that those who are with me are more than those who are against me. Angels at my doors. Angels at my windows. Angels at the four corners of my house. Angels at the foot of my bed. Angels walking the halls while my family sleeps. Tonight, my home is guarded by heaven.
+
+When an enemy king sent horses and chariots by night to surround the prophet Elisha, his servant woke early, saw the army all around the city, and was afraid. But Elisha was not afraid. He prayed one prayer. It is written in Second Kings 6 and verse 17. And Elisha prayed, and said, LORD, I pray thee, open his eyes, that he may see. And the LORD opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha.
+
+I lift this word like a banner over my house. If my eyes were opened tonight, I would see it. The hills around my home are full. Horses of fire. Chariots of fire. The armies of heaven on the night watch. Those who are with me are more than those who are against me. I may not see them, but they are there. I may not hear them, but they are watching. Every movement of darkness around my house tonight is met by a sword of fire. And not one of my loved ones will be touched.
+
+Every power of darkness that comes near my home tonight, look up and see what surrounds it. And flee.
+
+Angels of the Lord, take your positions. Chariots of fire, surround this house. Doors, be guarded. Windows, be guarded. Beds, be guarded. Darkness, flee from the hosts of heaven.
+
+And hear the Word again. Behold, he that keepeth Israel shall neither slumber nor sleep. He is awake. His armies are awake. So I can rest.
+
+The mountain is full of chariots of fire. My home is surrounded. I am not afraid.
+
+[WAVE 14 — CHAINS LOOSED AT MIDNIGHT]
+
+I break every chain that has held me in the night, and I declare that at this midnight, every door is opened and every band is loosed. The chain of addiction that pulls hardest at night. The chain of loneliness that tightens when the house is quiet. The chain of old memories that replay in the dark. The chain of a sin I keep returning to. The chain of grief that grips me at the same hour every night. Tonight, the foundations of my prison shake.
+
+I do this the way Paul and Silas did. Not by struggling against the chains, but by praising the God who breaks them. So I lift my voice in the dark. Jesus, you are worthy. Jesus, you are faithful. Jesus, you are my deliverer. And as I praise, the ground under every prison in my life begins to move. I will not wait until everything feels better to praise him. I will praise him in the dark, with my chains still on, because that is when the foundations shake. My praise is not a feeling. It is a weapon. And tonight I use it.
+
+It is written again in Acts 16 and verse 26. And suddenly there was a great earthquake, so that the foundations of the prison were shaken: and immediately all the doors were opened, and every one's bands were loosed.
+
+I declare this word like a shout at midnight. Suddenly. Not slowly. Suddenly. Immediately. Not someday. Immediately. Every door opened. Every band loosed. And not only mine. Every one's. Let my freedom tonight touch my whole family line.
+
+Every chain of darkness on my life, fall off now. Every prison door, open. Every foundation of bondage, shake and crumble.
+
+Chain, break. Prison door, open. Foundation of bondage, be shaken. Addiction, lose your grip. Grief, loosen your hold. Freedom, come suddenly.
+
+At midnight I prayed. At midnight I praised. And at midnight, my chains fell off.
+
+[WAVE 15 — THE DAWN]
+
+I declare that the night is ending and the morning of God is breaking over my life, and I reject every power that wants to keep me in darkness. The long night of waiting. The long night of tears. The long night of unanswered questions. The long night of carrying everything alone. Tonight I declare it. The night has an end, and the morning is coming.
+
+God does not leave his people in the dark forever. Weeping is a guest. It does not own the house. Joy is on its way, and it is coming with the sunrise. Every season of darkness over my life, I command you to give way to the light of God. Every power holding back my morning, release it now. The sun has never failed to rise. Not once since creation. And the God who commands the morning has never failed his children. If he can bring the sunrise over the whole earth, he can bring the morning over my life.
+
+It is written in Psalm 30 and verse 5. For his anger endureth but a moment; in his favour is life: weeping may endure for a night, but joy cometh in the morning.
+
+And it is written in Psalm 46 and verse 5. God is in the midst of her; she shall not be moved: God shall help her, and that right early.
+
+I lift these words like the first light over the hills. Weeping for a night. Joy in the morning. God in the midst. Not moved. Help that comes right early, at the breaking of the day.
+
+Every arrow sent to stretch out my night, return to the darkness. Every power delaying my morning, be removed. Let the Sun of righteousness rise over my life with healing in his wings.
+
+Long night, end. Tears, be wiped away. Darkness, give way. Morning, break. Joy, come. Help of God, arrive right early.
+
+Weeping may endure for a night. But joy is coming in the morning, and my morning is on its way.
+
+[THE FINAL WORD]
+
+Now hear the verdict of heaven over your night. Every alarm, silenced. Every evil seed, uprooted. Every weight, lifted. Every dream invader, expelled. Every unclean visitor, cut off. Every night terror over your children, silenced. Every midnight meeting, scattered. Every fear, quieted. Every stolen blessing, returning. Every attack on your marriage, cancelled. Every affliction, confronted. Every pursuer, confused. Every chain, broken. Every long night, ending.
+
+Your first watch, covered. Your second watch, covered. Your third watch, covered. Your fourth watch, covered. Your bed, your breath, your dreams, your family, your morning. Covered.
+
+Now receive the Word over every part of this night.
+
+Behold, he that keepeth Israel shall neither slumber nor sleep. He is awake over you right now.
+
+At midnight Paul and Silas prayed, and sang praises unto God. Your midnight is a place of breakthrough.
+
+In the fourth watch of the night Jesus went unto them, walking on the sea. Your three in the morning belongs to him.
+
+Thou shalt not be afraid for the terror by night. Fear has no hour in your house.
+
+Thou shalt be far from oppression. Nothing presses you down tonight.
+
+The darkness hideth not from thee; but the night shineth as the day. Every plan of darkness is exposed.
+
+The mountain was full of horses and chariots of fire. You are surrounded by heaven.
+
+Weeping may endure for a night, but joy cometh in the morning. Your morning is coming.
+
+The angel of the LORD encampeth round about them that fear him, and delivereth them. You are surrounded, and you are delivered.
+
+Nothing shall by any means hurt you. Not tonight, and not in the morning.
+
+So hear the closing verdict. The night shift of darkness is over. The watch has changed. The guard at your door does not sleep. Nothing that came for your night can stay. Nothing that was planted in the dark will grow. Nothing that was planned at midnight will stand.
+
+You may have gone to bed tonight expecting another hard night. Another three o'clock. Another long stare at the ceiling. But this is the night the pattern breaks. Living, watchful, and unbreakable, the covering of God stays over you, and it does not lift when this prayer ends. It stays through every watch until the sun comes up. And tomorrow night, when the clock turns toward three again, it will still be there. The pattern of fear is broken, and a new pattern begins. Peace at midnight. Rest at three. Joy in the morning. Night after night after night.
+
+Before we rest, go to the comments one more time and type it again. My night is covered by the blood. Let it stand there as your testimony. And if you know someone who has been fighting through the night alone, send this prayer to them. Your share tonight may be the reason someone sleeps in peace for the first time in months.
+
+[THE QUIET HOURS]
+
+Now let the night grow quiet. The battle is done. The watch has been handed to the Lord. And he has taken it.
+
+Let your body sink into the bed. Let your jaw loosen. Let your shoulders fall away from your ears. Let your hands rest open beside you. Breathe in slowly. Hold it gently. And let it go.
+
+Again. Breathe in. And let it go.
+
+The fire that burned through every attack tonight has settled. It is a soft glow now. Like a candle in the window. Like a lamp left on so you are not afraid. It is not here to fight. It is here to keep you warm until morning.
+
+You do not have to keep watch. Hear that again. You do not have to keep watch. He does. He that keepeth Israel shall neither slumber nor sleep. He is awake, so you can sleep.
+
+If you wake in the night, you do not have to be afraid. Just whisper his name. Jesus. Then turn over, and let sleep find you again.
+
+It is written in Psalm 127 and verse 2. It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so he giveth his beloved sleep.
+
+You are his beloved. And he gives sleep to his beloved. Not as a reward you have to earn. As a gift. Tonight, receive the gift.
+
+Breathe in. And let it go.
+
+Let your thoughts slow down, one by one, like cars passing on a quiet road late at night. Let them go by. You do not have to follow any of them. Tomorrow's problems will still be there in the morning, and so will God. He is already there, waiting for you. Let the worries you carried all day fall from your hands one at a time. The bills. The phone calls. The conversations you wish had gone differently. Put them down. You can pick up what you need in the morning. Tonight, your hands are empty, and his are full.
+
+Your home is quiet. Your children are covered. Your doors are watched. The hills around your house are full of the armies of heaven. And the One who commands them is standing at the foot of your bed.
+
+It is written in Psalm 4 and verse 8. I will both lay me down in peace, and sleep: for thou, LORD, only makest me dwell in safety.
+
+Lie down in peace. And sleep. Only the Lord makes you dwell in safety. And he is here.
+
+Let your breath grow slow and deep. Let your eyes grow heavy. Let your body become still. Feel how heavy your arms have become. Feel the bed holding you up. You are held tonight. By the bed beneath you. By the walls around you. By the God above you.
+
+You are safe. You are covered. You are his beloved.
+
+Breathe in. And rest.
+
+[THE SEAL]
+
+Say this softly with me, as your own. Lord, I give you this night. Every watch of it. I give you my sleep, my dreams, my body, and my mind. I give you my home and everyone in it. You never slumber and you never sleep, so I will lie down and rest. My night is covered by the blood of Jesus. I will wake in peace.
+
+Father, we seal this prayer now. Seal every word spoken here tonight. Seal every door, every window, every bed, and every heart. Let your angels keep their posts through every watch of this night. Let the fourth watch be the most peaceful hour this home has known. And let this child of God wake in the morning rested, strong, and full of joy. Let them carry that peace into the day, and back into the night again.
+
+Let every chain that fell tonight stay broken. Let every door that closed to darkness stay closed. Let every promise spoken tonight stand firm in this home. And let joy come in the morning.
+
+In the mighty name of Jesus Christ, the Keeper of Israel, the Light that shines in the darkness, the One who never slumbers and never sleeps. Amen.
