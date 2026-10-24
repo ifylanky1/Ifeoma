@@ -1,0 +1,93 @@
+In the summer of 1899, delegates from twenty-six nations met at The Hague to vote on a single kind of bullet. Most of them wanted it banned from war forever. Two countries voted no. Britain, the country that had invented it. And the United States.
+
+That bullet was the dum-dum. And it was only one link in a chain that runs for more than a hundred and fifty years. Explosive rounds, hollow points, pointed bullets that tumble, rounds built to set airships on fire, and bullets filled with poison. Every one of them was designed to get around the rule that came before it.
+
+Because in the history of the bullet, every ban created the next design.
+
+We spent months researching and rebuilding each of these rounds in 3D, from the first exploding musket shells to the hollow points carried by soldiers today.
+
+In the 1860s, during the American Civil War, a few inventors tried to give the ordinary rifle bullet a new power. The Gardiner musket shell looked like a normal .58 calibre round. But inside its lead body was a small charge of powder and a short fuse. Fired from a standard rifle, it was meant to burst a moment after impact.
+
+Against wagons and ammunition boxes, that made sense. Against a soldier, it changed what a single wound could do.
+
+Russia had been developing similar rounds. And in 1868, its government asked a question no army had formally asked before. If the purpose of war is to put enemy soldiers out of the fight, how much harm is too much?
+
+The answer was the St Petersburg Declaration, one of the first international agreements to ban a weapon. Its signatories gave up explosive or flammable projectiles weighing less than four hundred grams. Heavy artillery shells were still allowed. Small exploding bullets made for men were not.
+
+The reasoning was simple. A wounded soldier is already out of the fight. Anything that adds suffering beyond that point serves no military purpose.
+
+But the declaration only covered explosions. And rifle technology was about to change completely.
+
+By 1888, Britain had adopted the Lee-Metford rifle and its new .303 cartridge. Its bullet was small, fast, and wrapped in a hard metal jacket, because soft lead at that speed would smear inside the barrel.
+
+The jacket solved one problem. It created another.
+
+On the North-West Frontier of British India, officers began to report that the new bullet passed cleanly through a man, leaving a small hole on each side. Some of those men kept fighting.
+
+The solution came from an arsenal near Calcutta, in a town called Dum Dum. There, around 1896, British officers tried something simple. They left the lead tip of the bullet exposed. When it struck, the soft nose flattened and spread. A wider bullet slows down faster, and a bullet that slows down faster dumps more of its energy into whatever it hits, instead of carrying it out the other side.
+
+The dum-dum was born.
+
+A year later, Britain went further with the .303 Mark IV, a bullet with a hollow cavity in its nose. On impact, the cavity collapsed and the bullet opened outward, like the petals of a flower. In 1898, some British battalions carried it at Omdurman, in Sudan.
+
+But the Mark IV had a flaw of its own. Its thin jacket could tear away inside the barrel, and the rifle would jam. So the design was refined again into the Mark V.
+
+Then came The Hague. In 1899, the conference declared that bullets which expand or flatten easily in the human body must not be used in war between the signing nations. It even described them: a hard jacket that does not fully cover the core, or one cut with notches. Britain argued that its soldiers needed stopping power against charging enemies, and voted against. The United States did the same.
+
+But the pressure kept building, and in 1907, Britain signed.
+
+The hollow point was gone from the battlefield. On paper.
+
+So armies turned to the one design the rule clearly allowed: the full metal jacket. A lead core completely sealed inside a harder metal shell, so it could not expand.
+
+In 1905, Germany introduced the S-Patrone, with a new pointed nose called the spitzer. It flew flatter, faster and further than the old round-nosed bullets. Within a few years, almost every major army had copied it.
+
+But the spitzer had a hidden behaviour. Most of its weight sat towards the back. When it entered something softer than air, the heavy tail tried to overtake the light nose, and the bullet began to turn sideways, tumbling end over end.
+
+Britain's own pointed round, the .303 Mark VII of 1910, went a step further. Under its jacket, the front of the bullet was filled with a light plug of aluminium or compressed fibre, pushing the weight even further back.
+
+It did not expand. It obeyed the letter of the law.
+
+It still caused far more damage than its small size suggested.
+
+Then came the First World War. Within weeks, Germany and Britain were accusing each other of using dum-dums. In the trenches, some soldiers simply made their own, cutting or filing the tip off a full metal jacket bullet with a knife.
+
+And the war brought a new kind of target. In 1915, German Zeppelins began crossing the North Sea at night to bomb British cities. They were huge, they flew high, and they were held up by hydrogen gas. Ordinary bullets punched small holes in their fabric skins, and the airships simply flew home.
+
+The fix was the explosive and incendiary bullet, rounds like the Brock and the Pomeroy. Each was designed to burst or burn as it tore through the skin, so the hydrogen inside would catch fire.
+
+In September 1916, a British pilot named William Leefe Robinson attacked an airship over London with a mixture of Brock and Pomeroy rounds. It caught fire and fell, seen by thousands on the ground below. Robinson was awarded the Victoria Cross.
+
+But these bullets weighed far less than four hundred grams. So the British ordered them to be used only against airships and balloons, never against aeroplanes or men. Some pilots reportedly carried written orders proving it, in case they were captured.
+
+The rule was no longer about the bullet. It was about the target.
+
+Austria-Hungary drew a similar line. Its 8 millimetre observation round contained a small charge that flashed and smoked on impact, so a gunner could see exactly where his shots were landing. In the Second World War, Germany fielded its own version, the B-Patrone, built for spotting from aircraft. But by the last year of the war, German commanders were asking for it to be issued to snipers on the Eastern Front.
+
+A round designed to show where a bullet landed was now being requested by men whose targets were soldiers.
+
+And during the same war, the chain reached its darkest link.
+
+In 1944, at the Sachsenhausen concentration camp, Nazi doctors tested 7.65 millimetre pistol bullets filled with a plant poison called aconitine. They fired them at prisoners, to measure whether a wound that was not fatal could become fatal through the poison alone.
+
+Poison weapons had been banned since 1907. After the war, at the Nuremberg Doctors' Trial, the experiment was judged a crime. The SS doctor who oversaw it, Joachim Mrugowsky, was sentenced to death.
+
+This time, the problem was not the bullet's design. It was the people who chose to use it.
+
+After the war, the full metal jacket remained the legal standard for every major army. But the old question never went away.
+
+In the Vietnam War, the American M16 fired a small 5.56 millimetre bullet at very high speed. When it hit at close range, it often yawed and broke apart at a groove around its middle, scattering fragments. It had never been designed to expand. But the effect looked so similar that, in the 1970s, several governments argued at international conferences that small, fast bullets should be restricted too.
+
+No ban was agreed. The bullet had found another gap in the rules.
+
+In 2015, a legal review by the United States Army concluded that expanding bullets could be lawful in war when there was a genuine military need, such as stopping a threat instantly or preventing a bullet from passing through a target and hitting someone behind it. Police forces had used hollow points for decades for exactly those reasons, because they stop sooner and are less likely to pass through walls. And the United States had never signed the 1899 declaration.
+
+Two years later, the US Army adopted a new service pistol. Its standard combat round was the M1153, a jacketed hollow point.
+
+More than a century after it was banned at The Hague, the idea born in an arsenal near Calcutta had returned to a soldier's holster.
+
+In 1998, the treaty that created the International Criminal Court listed the use of expanding bullets in war between nations as a war crime. Today, the International Committee of the Red Cross considers them prohibited in every armed conflict. The United States disagrees.
+
+And so the argument that began with that vote at The Hague is still not settled.
+
+From exploding musket shells to tumbling spitzers, every bullet in this story was built to beat the rule before it. And every rule was written because a bullet had gone too far.
