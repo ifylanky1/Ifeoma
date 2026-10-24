@@ -139,3 +139,42 @@ Type "Returned to sender. I am covered." in the comments as your declaration of 
 25:00 The quiet night (only if Part 7 is added)
 27:01 The seal (only if Part 7 is added)
 ```
+
+## Part 2 upload (Wave 13 to The Seal, 11:46)
+
+**Title:** Fall Asleep Under God's Shield | Every Weapon Against You Reversed Tonight (Part 2)
+
+Alternates: Return to Sender Prayer Part 2 | Every Weapon Reversed + Sleep in Peace Tonight · No Weapon Shall Prosper | Final Verdict Prayer Before You Sleep (Part 2)
+
+**Thumbnail:** #5 ANGELS CATCH EVERY ARROW
+
+**Description:**
+
+Tonight, every weapon formed against you is reversed, and you can finally rest.
+
+This is Part 2 of our Return to Sender night prayer. Watch Part 1 here: [PASTE PART 1 LINK]
+
+In this prayer:
+
+🛡️ Every weapon of darkness, known and unknown, sent back by the cross
+
+🔥 Heaven's final verdict spoken over your life, home and family
+
+🩸 Your sleep sealed and covered by the Blood of Jesus
+
+📖 A gentle wind-down into peaceful sleep with Psalm 4:8 and Psalm 121:4
+
+"I will both lay me down in peace, and sleep: for thou, LORD, only makest me dwell in safety." Psalm 4:8
+
+Play this nightly before you sleep, right after Part 1 or on its own.
+
+Type "Returned to sender. I am covered." in the comments as your declaration of faith.
+
+➡️ Subscribe to Shielded Tonight Prayers and pray with us every night. You are covered, you are seen, and this family of faith is praying beside you.
+
+```
+00:00 Every weapon returns to sender
+02:27 The final word over your life
+06:33 The quiet night: rest for your soul
+10:04 The seal
+```
