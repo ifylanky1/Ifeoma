@@ -1,0 +1,81 @@
+On the 18th of January, 1911, a small biplane came in low over San Francisco Bay, heading for a warship. Across the ship's deck lay a wooden platform, and across that platform lay twenty-two ropes, each one tied to a pair of sandbags. The only thing that would stop the plane was a few hooks underneath it, and those ropes.
+
+It worked. And from that rough platform of wood, rope and sand grew the largest warships ever built.
+
+This is the story of the aircraft carrier, from balloons launched off barges to nuclear ships that fire jets into the sky with magnets. Because every carrier in history was built for one reason: the one before it could not handle the next aircraft.
+
+We spent months researching and rebuilding every stage of that story in 3D, from the first balloon ships to the carriers at sea today.
+
+The idea is older than the aeroplane. In 1849, the Austrian navy tried to bomb the city of Venice using unmanned hot-air balloons, released from a ship anchored offshore. Each balloon carried a small bomb on a timed fuse.
+
+But a balloon goes wherever the wind takes it. Some of them drifted back over the Austrian lines.
+
+In 1861, during the American Civil War, the Union army fitted out a coal barge on the Potomac River to carry an observation balloon. A man in the basket could look miles behind enemy lines.
+
+But he could only watch. The balloon was tied to the barge, and it could not go where it was needed.
+
+The aircraft that could finally choose its own direction arrived in 1903. And in November 1910, an American pilot named Eugene Ely took off from a wooden ramp, just eighty-three feet long, built over the bow of the cruiser USS Birmingham. His plane dropped off the end, its wheels touched the water, and the propeller splintered. He made it to the shore.
+
+A plane could now leave a ship. But it had nowhere to come back to.
+
+Which is why, two months later, Ely flew to that platform in San Francisco Bay. The hooks caught the ropes, the sandbags dragged across the deck one after another, and the plane stopped. Those sandbags were the first arresting gear.
+
+But building a wooden runway on top of a warship's guns was not practical. So when the First World War began in 1914, navies tried a simpler solution: the seaplane carrier.
+
+Ships like HMS Ark Royal carried seaplanes in a hangar. To launch one, a crane lifted it over the side and lowered it onto the sea, where it took off from the water. When it came back, it landed beside the ship and was craned aboard again.
+
+It worked in calm weather. But in rough seas, the floats broke, the planes flipped, and the ship had to stop moving while the crane did its job. A stopped ship was an easy target for a submarine.
+
+The navy needed a deck that a plane could land on while the ship kept moving.
+
+In 1917, Britain took an unfinished warship called HMS Furious, a fast cruiser designed to carry two enormous 18-inch guns, and replaced the front gun with a flat flying-off deck.
+
+On the 2nd of August, 1917, Squadron Commander Edwin Dunning flew a Sopwith Pup around the ship's bridge and side-slipped onto that short front deck, while officers ran out and grabbed straps on his plane to pull it down. It was the first landing on a moving ship.
+
+Five days later, he tried again. This time, the plane went over the side, and Dunning was killed.
+
+So Furious was rebuilt once more, with a landing deck at the back. But the funnel and bridge still stood in the middle of the ship. Hot gases and swirling air poured off them and across the landing deck, and planes approaching from behind were thrown around in the turbulence.
+
+Even so, in July 1918, Sopwith Camels launched from Furious attacked the Zeppelin sheds at Tondern and destroyed two airships, the first air raid ever launched from a carrier deck. But with no safe way to land back on board, the pilots had to ditch in the sea or come down in neutral Denmark.
+
+The fix was to clear the deck entirely. In 1918, Britain converted an unfinished passenger liner into HMS Argus, with a single flight deck running the full length of the ship. The smoke from her boilers was carried through ducts and released at the stern. Nothing stood in the way.
+
+The flat-top was born.
+
+But a ship still needs somewhere to steer from, and somewhere to vent its smoke. So designers moved the bridge and funnel into a narrow tower on the right-hand side, called the island. Almost every carrier since has followed that layout. And in 1922, Japan commissioned Hosho, the first carrier designed as a carrier from the keel up.
+
+Then, in 1922, a treaty changed everything. The Washington Naval Treaty strictly limited how many battleships the major powers could build. Several huge, half-finished battleship and battlecruiser hulls were suddenly illegal to complete as warships.
+
+But they could be completed as carriers. America's Lexington and Saratoga and Japan's Akagi and Kaga were all born this way, bigger and faster than any carrier before them.
+
+A treaty designed to stop an arms race had created a new one. At about two hundred and seventy metres, Lexington and Saratoga would remain the longest carriers in the world for almost twenty years.
+
+For years, many admirals still believed the battleship ruled the sea. The Second World War proved otherwise. In 1940, at Taranto, a handful of British biplanes from HMS Illustrious crippled the Italian fleet in its harbour. A year later, Japanese carriers struck Pearl Harbor. And in May 1942, in the Coral Sea, two fleets fought an entire battle without ever seeing each other. Only their aircraft met. A month later, at Midway, Akagi and Kaga, born from that same treaty, were among four Japanese carriers sunk by American aircraft.
+
+From that moment on, the carrier was the most important ship in any navy.
+
+But a new aircraft was about to make every carrier in the world obsolete: the jet.
+
+Jets were heavier and landed much faster than propeller planes. And their early engines took several seconds to build up power, so a pilot could not quickly abort a bad approach. On a straight deck, a plane that missed every wire ran straight into a barrier, or into the aircraft parked at the front.
+
+In 1951, a British officer, Captain Dennis Cambell, sketched a simple answer. Turn the landing area a few degrees to the left. A jet that missed the wires would no longer hit anything. It would simply run off the angled end of the deck, power up, and go around again.
+
+The Royal Navy tested it by painting angled lines on HMS Triumph. Then the United States rebuilt the carrier USS Antietam with a real angled deck. It worked so well that every large carrier since has had one.
+
+Launching jets brought the same problem in reverse. The old hydraulic catapults could not throw a heavy jet fast enough to fly. So another British officer, Commander Colin Mitchell, designed a catapult powered by steam from the ship's own boilers, pushing a piston down a long slotted cylinder beneath the deck. A shuttle riding in the slot was hooked to the aircraft, and when the steam was released, it could hurl a jet from a standstill to flying speed in a couple of seconds. In trials aboard HMS Perseus, it launched aircraft far heavier than the old system could manage.
+
+And landing at jet speed needed precision. Until then, an officer on deck had guided pilots in with hand signals. A third British officer, Commander Nicholas Goodhart, replaced him with a large curved mirror. A light shining into it formed a glowing ball, and the pilot simply kept that ball level with a row of green lights to stay on the correct glide path. Pilots came to call that glowing ball the meatball.
+
+The angled deck. The steam catapult. The mirror landing aid. Three British ideas, adopted by the United States Navy, and still at the heart of every big carrier today.
+
+In 1961, the United States commissioned USS Enterprise, the first nuclear-powered aircraft carrier. At more than three hundred and thirty metres, she was the longest warship ever built, and eight reactors drove her across the oceans for years without refuelling.
+
+But the steam catapult had a limit. It hit every aircraft with a sudden, violent shove, hard on the airframes and difficult to adjust for planes of very different weights.
+
+In 2017, the United States commissioned USS Gerald R. Ford, a ship more than three hundred and thirty metres long, carrying more than seventy-five aircraft. Her catapults use no steam at all. They use electromagnets, a linear motor that pulls the aircraft along the deck with smooth, precisely controlled force, from the lightest drone to the heaviest fighter.
+
+The arresting wires were redesigned too, so that each landing aircraft is slowed with exactly the force it needs.
+
+A little more than a century earlier, a plane on its way to a warship had been stopped by ropes and sandbags.
+
+The ships grew. The aircraft changed. But every carrier in history was rebuilt for the same reason: to catch the next aircraft, and to send it back into the sky.
