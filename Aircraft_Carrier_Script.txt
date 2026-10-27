@@ -36,7 +36,7 @@ Five days later, he tried again. This time, the plane went over the side, and Du
 
 So Furious was rebuilt once more, with a landing deck at the back. But the funnel and bridge still stood in the middle of the ship. Hot gases and swirling air poured off them and across the landing deck, and planes approaching from behind were thrown around in the turbulence.
 
-Even so, in July 1918, Sopwith Camels launched from Furious attacked the Zeppelin sheds at Tondern and destroyed two airships, the first air raid ever launched from a carrier deck. But with no safe way to land back on board, the pilots had to ditch in the sea or come down in neutral Denmark.
+Even so, in July 1918, Sopwith Camels launched from Furious attacked the Zeppelin sheds at Tondern and destroyed two airships, the first air strike ever flown from a carrier's flight deck. But with no safe way to land back on board, the pilots had to ditch in the sea or come down in neutral Denmark.
 
 The fix was to clear the deck entirely. In 1918, Britain converted an unfinished passenger liner into HMS Argus, with a single flight deck running the full length of the ship. The smoke from her boilers was carried through ducts and released at the stern. Nothing stood in the way.
 
@@ -44,7 +44,7 @@ The flat-top was born.
 
 But a ship still needs somewhere to steer from, and somewhere to vent its smoke. So designers moved the bridge and funnel into a narrow tower on the right-hand side, called the island. Almost every carrier since has followed that layout. And in 1922, Japan commissioned Hosho, the first carrier designed as a carrier from the keel up.
 
-Then, in 1922, a treaty changed everything. The Washington Naval Treaty strictly limited how many battleships the major powers could build. Several huge, half-finished battleship and battlecruiser hulls were suddenly illegal to complete as warships.
+That same year, a treaty changed everything. The Washington Naval Treaty strictly limited how many battleships the major powers could build. Several huge, half-finished battleship and battlecruiser hulls were suddenly illegal to complete as warships.
 
 But they could be completed as carriers. America's Lexington and Saratoga and Japan's Akagi and Kaga were all born this way, bigger and faster than any carrier before them.
 
@@ -72,7 +72,7 @@ In 1961, the United States commissioned USS Enterprise, the first nuclear-powere
 
 But the steam catapult had a limit. It hit every aircraft with a sudden, violent shove, hard on the airframes and difficult to adjust for planes of very different weights.
 
-In 2017, the United States commissioned USS Gerald R. Ford, a ship more than three hundred and thirty metres long, carrying more than seventy-five aircraft. Her catapults use no steam at all. They use electromagnets, a linear motor that pulls the aircraft along the deck with smooth, precisely controlled force, from the lightest drone to the heaviest fighter.
+In 2017, the United States commissioned USS Gerald R. Ford, built to carry more than seventy-five aircraft. Her catapults use no steam at all. They use electromagnets, a linear motor that pulls the aircraft along the deck with smooth, precisely controlled force, from the lightest drone to the heaviest fighter.
 
 The arresting wires were redesigned too, so that each landing aircraft is slowed with exactly the force it needs.
 
