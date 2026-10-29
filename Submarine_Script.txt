@@ -1,0 +1,89 @@
+On the night of the 17th of February, 1864, a small iron vessel slipped out of Charleston Harbour, almost completely underwater. Eight men sat shoulder to shoulder inside it, turning a crankshaft by hand. On a long pole at its bow was a charge of black powder.
+
+A few hours later, the Union warship USS Housatonic was sinking, and five of her crew were dead. It was the first time in history that a submarine had sunk an enemy ship.
+
+The submarine never came home.
+
+This is the story of how the submarine was invented, from leather-covered rowing boats to nuclear vessels that stay hidden for months. Because every submarine in history was built for one reason: the one before it could not stay under, or could not get back up.
+
+We spent months researching and rebuilding every stage of that story in 3D, from the first wooden submarines to the stealth boats of today.
+
+The first working submarine appeared more than two centuries before that night in Charleston. In the 1620s, a Dutch inventor living in England, Cornelis Drebbel, built a wooden boat covered in greased leather. Oars poked out through tight leather seals, and accounts describe it travelling beneath the surface of the River Thames.
+
+But it could only go where oars could row it. And no one inside knew how long the air would last. One account even suggests Drebbel refreshed it by heating saltpetre, a chemical that releases oxygen, but no one knows for certain.
+
+In 1775, during the American War of Independence, a Yale student named David Bushnell built something stranger. The Turtle was a wooden shell shaped like two halves of a giant egg, with room for a single man. He let water into a tank to sink, pumped it out to rise, and turned a hand crank to drive a propeller.
+
+In 1776, the Turtle crept up beneath a British warship in New York Harbour. Its pilot tried to screw a charge of gunpowder into the ship's hull. But the screw would not bite. With his air running low, he gave up and turned for home.
+
+The idea worked. The machine did not.
+
+In 1800, the American engineer Robert Fulton tried again, in France. His submarine, also called Nautilus, unfolded a sail like a small fishing boat on the surface. Underwater, the sail folded away and the crew turned a hand crank. Fulton carried a flask of compressed air on board, and stayed under for several hours. But the French navy lost interest, and so did the British.
+
+A human being is a weak engine. And a sealed boat holds only so much air.
+
+Which brings us back to the Hunley. Built in 1863 for the Confederacy, it was a long iron cylinder, and its eight-man crew cranked its propeller by hand, in near darkness, breathing the same air until it ran out. At full effort, they could push it along at about the speed of a brisk walk.
+
+Before its famous attack, it sank twice in training. Thirteen men died, including its inventor, Horace Hunley.
+
+Its weapon was a spar torpedo, a charge fixed to the end of a long pole and driven into the enemy's hull. That meant the explosion happened only a few metres from the submarine itself.
+
+On its last mission, it succeeded, and then disappeared. In 1995, the wreck was found on the seabed off Charleston. When it was raised in 2000, archaeologists found all eight crew still at their stations.
+
+The submarine needed a better engine.
+
+The answer came from an Irish-American inventor, John Holland. In 1900, the United States Navy bought his design and named it USS Holland. On the surface, a petrol engine drove it along and charged a set of batteries. Underwater, those batteries ran an electric motor, which needed no air at all.
+
+Two engines, one for each world. Almost every submarine for the next fifty years would follow that idea.
+
+Holland also solved the problem of diving. Ballast tanks filled with seawater until the boat was almost neutral, neither sinking nor floating. Then small horizontal fins called diving planes tilted it downward as it moved, steering it beneath the surface like a wing in water.
+
+Once under, though, the crew was blind. The answer was the periscope, a tall tube of mirrors and lenses that let the commander look out across the surface while the hull stayed hidden below.
+
+But petrol has a hidden danger. Its fumes collect in enclosed spaces, and a single spark can ignite them. Inside a sealed steel hull, that was a constant risk.
+
+So navies switched to diesel, a heavier fuel that gave off far less explosive vapour. By the start of the First World War, the diesel-electric submarine was ready.
+
+On the 22nd of September, 1914, a single German U-boat, U-9, found three British cruisers patrolling the North Sea. In a little more than an hour, it sank all three. Nearly fifteen hundred men were lost, and its commander, Otto Weddigen, became a national hero overnight.
+
+From that moment on, no navy could ignore the submarine.
+
+In 1915, another U-boat sank the passenger liner Lusitania off the coast of Ireland, and nearly twelve hundred people died. The sinking turned much of American opinion against Germany, and two years later, the United States entered the war.
+
+But the diesel-electric submarine had a weakness built into it. Its batteries only lasted so long. Underwater, it crept along at walking pace, and every day it had to come back to the surface to run its diesels and recharge.
+
+And on the surface, it was vulnerable.
+
+By the Second World War, aircraft and radar were hunting submarines across the oceans. Escort ships listened for them with underwater sound detectors and attacked with depth charges, explosives set to burst at a chosen depth. A U-boat that surfaced at night to recharge could be spotted from the air miles away.
+
+The fix was a breathing tube. Dutch engineers had invented the snorkel before the war, a pipe that reached from the submerged hull up to the surface, so the diesels could draw air while the boat stayed hidden. Germany captured the idea in 1940, and by 1944, its U-boats were using it to recharge underwater.
+
+Then Germany went further. The Type XXI was the first submarine designed to live underwater rather than on the surface. It had a smooth, streamlined hull and three times the battery capacity of earlier boats. It could stay submerged for days and move faster underwater than many older submarines could on the surface.
+
+It arrived too late to change the war. But after it, every navy rebuilt its submarines around the same idea. The United States alone converted dozens of its wartime boats under a programme called GUPPY, short for Greater Underwater Propulsive Power.
+
+Still, the submarine needed air for its engines, and the batteries still ran down.
+
+The final answer was an engine that needed no air at all. In 1954, the United States launched USS Nautilus, the first nuclear-powered submarine. Its reactor heated water into steam, the steam turned the turbines, and the reactor could run for years without refuelling. In 1955, its first message from sea read: underway on nuclear power.
+
+In 1958, Nautilus sailed beneath the ice of the North Pole, something no vessel had ever done.
+
+Two years later, USS Triton sailed all the way around the world without surfacing once.
+
+The submarine no longer had to come up at all. And in 1960, USS George Washington fired a ballistic missile from beneath the sea for the first time. The most hidden ship in the navy had become one of the most powerful weapons on Earth.
+
+But its shape was still a surface ship's shape. Nautilus had a long hull with a pointed bow, designed to cut through waves. Underwater, there are no waves.
+
+The US Navy had already built the answer: a test submarine called USS Albacore, launched in 1953, with a smooth, rounded hull shaped like a teardrop. It was faster, quieter and far easier to steer underwater. Combine that hull with a nuclear reactor, and the modern submarine was born.
+
+Then came the next problem: sound. Underwater, light travels only a short distance, but sound travels for miles. Enemy ships listen with sonar, and a submarine that can be heard can be found.
+
+So engineers turned to silence. They mounted machinery on rubber supports, covered hulls with sound-absorbing tiles, and replaced the propeller with a pump-jet, a ducted rotor that makes far less noise as it spins.
+
+And for submarines without reactors, Sweden found another way. Its Gotland class, launched in the 1990s, uses an engine that burns fuel with liquid oxygen carried on board, so it can stay submerged for around two weeks without coming up for air.
+
+Today, a nuclear ballistic missile submarine can stay hidden beneath the ocean for months at a time, with more than a hundred people on board. It makes its own oxygen by splitting seawater, and its own drinking water by distilling the sea. The only real limit is the food it can carry.
+
+A century and a half earlier, eight men sat in the dark inside an iron tube, turning a crank by hand, breathing the same air until it ran out.
+
+The engines changed. The hulls changed. But every submarine in history was rebuilt for the same reason: to stay under longer, and to come back up.
