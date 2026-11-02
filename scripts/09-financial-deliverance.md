@@ -1,0 +1,309 @@
+[HOOK]
+
+Tonight, before you sleep, hear this. You are not forgotten by heaven. You are not cursed to struggle forever. You are not the one whose money always disappears while everyone else moves forward. Tonight, by the blood of Jesus Christ, every chain of lack on your life begins to break, and everything the enemy has stolen from you is called back.
+
+Maybe you work hard and still come up short. Maybe the money comes in and leaves the same week. Maybe every time you get ahead, something breaks, someone falls sick, or a bill you never expected arrives. Maybe the same struggle has followed your parents, your grandparents, and now you. It touches your home, your sleep, your marriage, your children, and your peace of mind.
+
+The same God who filled the widow's empty jars with oil until there was no vessel left. The same God who fed Elijah by the brook when the land was dry. The same God who told David, pursue, and you will recover all. That God is your Father tonight. And he has not run out.
+
+It is written in Deuteronomy 8 and verse 18. But thou shalt remember the Lord thy God: for it is he that giveth thee power to get wealth, that he may establish his covenant which he sware unto thy fathers, as it is this day.
+
+So hear me, every power of lack that has been sitting on this life. Your time is up. What you took, you will give back. And this house is about to learn what it means to be provided for by God.
+
+[THE NIGHTLY WATCH]
+
+Before we go any further, I want to ask something of you. Make this prayer part of your nights. Play it every night before you sleep. Let it run while you rest. Seven nights. Then fourteen. Then thirty.
+
+Here is why. Patterns of lack are rarely broken in one night. They are old, and they are stubborn. But a new pattern of faith, spoken over your life night after night, begins to push the old one out. And as you pray, keep your eyes open in the daytime too. Many who pray this way, night after night, begin to notice things. A new idea. A door they had not seen. A person who suddenly remembers them. A wiser way to handle what they already have. That is often how God answers.
+
+Let me tell you about a woman who knew exactly what lack feels like. Her husband had been a prophet, a man who feared the Lord. But he died, and he left debts behind. And the creditor came to her door and said, if you cannot pay, I will take your two sons as slaves. She went to the prophet Elisha in tears.
+
+Elisha asked her one question. What do you have in the house? And she said, nothing, except a pot of oil. Just a little. Almost nothing.
+
+But God does not need much to start with. Elisha told her to go and borrow empty jars from all her neighbors. Not a few. As many as she could find. Then shut the door, and pour. So she did. She poured from her little pot into the first jar, and it filled. And the next. And the next. The oil kept flowing until she said, bring me another jar, and her son said, there are no more. And the oil stopped.
+
+Then it is written in Second Kings 4 and verse 7. Then she came and told the man of God. And he said, Go, sell the oil, and pay thy debt, and live thou and thy children of the rest.
+
+Notice what God did, and what she did. God multiplied the oil. But she still had to borrow the jars. She still had to pour. She still had to go out and sell it, and pay the debt. God's provision and her obedience worked together. And her sons stayed free.
+
+That is what tonight is. This prayer is not a promise that money will fall from the sky. It is a call on the God who multiplies what is in your hand, opens doors you cannot open, and gives you the strength and wisdom to walk through them. So keep coming back to this prayer, night after night, and bring him your little oil.
+
+[THE GOD WHO PROVIDES]
+
+Now listen closely, because there is something the spirit of lack does not want you to know. He wants you to believe that your provision depends on the economy, on your employer, on your family, on luck. He wants you to believe that if those fail, you are finished.
+
+But your source is not any of those. Your source is God. They are only channels. And when one channel closes, your source can open another.
+
+Hear the promise again. It is written in Deuteronomy 8 and verse 18. But thou shalt remember the Lord thy God: for it is he that giveth thee power to get wealth, that he may establish his covenant which he sware unto thy fathers, as it is this day.
+
+Power to get wealth. Not wealth dropped into your lap, but power. Strength to work. Ideas that bring income. Skill in your hands. Favor with people. Wisdom to manage what comes. Discipline to save and to stop what drains. That power comes from God, and tonight we ask him to release it over your life.
+
+And it is written in Philippians 4 and verse 19. But my God shall supply all your need according to his riches in glory by Christ Jesus.
+
+All your need. Not some of it. All of it. According to his riches, not according to your bank balance. And by Christ Jesus, the one who became poor so that you could be made rich in him.
+
+So say this with me. Say it out loud, right where you are lying. My God is my source. My provision does not depend on any person, any job, or any economy. It depends on the Lord. He gives me power to get wealth. He supplies all my need according to his riches in glory by Christ Jesus. Every channel he wants to open for me, let it open. Every power holding back my provision, let it be broken. I am covered by the blood of Jesus, and I will not lack.
+
+[THE COVERING]
+
+Father, in the name of Jesus Christ, we lift this child of God before you tonight. You know their bank account. You know their debts. You know the bills on the table and the fear in their chest when they look at them. You know the job they are trying to keep and the work they are praying for. You know how hard they have tried. We bring all of it to you now.
+
+Lord, cover this household. The husband and the wife who argue about money because they are afraid. The single mother counting coins for school fees. The father who feels he has failed his family. The young person who cannot find work. The elderly parent living on almost nothing. The business owner watching sales fall. Cover them all, Lord. Be their provider. Be their shepherd. Let them not lack.
+
+Where the enemy has been draining their resources, stop him. Where doors of work have been shut, open them. Where they have made mistakes with money, forgive them, and give them wisdom to do better. Where others have cheated them or held back what is owed, defend them, and let justice come. And where they need a miracle, Lord, you are still the God of the widow's oil.
+
+It is written in Psalm 34 and verse 10. The young lions do lack, and suffer hunger: but they that seek the Lord shall not want any good thing.
+
+They that seek the Lord shall not want any good thing. Let it be so for this child of God tonight. Let it be so for this household.
+
+Now say it with me, as your own. Lord, I seek you tonight. You are my shepherd. You are my provider. My household is covered by the blood of Jesus. My work is covered. My finances are covered. I will not want any good thing, because I seek the Lord. And I give you my little oil tonight. Multiply it.
+
+[BRIDGE]
+
+Now we go into battle for your provision. From this moment, every line I speak, speak it as your own. Say it out loud if you can. Whisper it if you must. Pray it in your heart if you are already falling asleep. Heaven is listening. We are going to confront every power that has been draining, blocking, and stealing your provision, one by one. And we are going to call back everything that belongs to you. Not by our strength. By the blood of Jesus and by the Word of the living God. Now rise. Your provision is the Lord's business.
+
+[WAVE 1 — THE BAG WITH HOLES]
+
+I close every hole in my finances, and I break every spirit that makes my money disappear. The salary that is gone before the month is half over. The money that leaks away on things I cannot even remember. The sudden repairs that come every time I save. The sicknesses, emergencies, and losses that swallow every gain. The feeling of pouring water into a basket. I name it tonight, and I refuse it tonight.
+
+Every hole in my pocket, be sealed by the hand of God. Every leak in my provision, be stopped by the blood of Jesus. Every spirit of waste and drain assigned to my finances, I bind you and I cast you out. What God gives me will stay with me long enough to do what he intended.
+
+It is written in Haggai 1 and verse 6. Ye have sown much, and bring in little; ye eat, but ye have not enough; ye drink, but ye are not filled with drink; ye clothe you, but there is none warm; and he that earneth wages earneth wages to put it into a bag with holes.
+
+I hold this word up like a mirror, and I see my old pattern in it. Earning wages and putting them into a bag with holes. But tonight the Lord mends the bag. The holes are closed. And I ask for wisdom, Lord, to see the holes I have made myself and to close them too.
+
+Every hole in my finances, close now. Every drain on my resources, dry up. Every waster assigned to my house, be removed.
+
+Leak, be sealed. Drain, be stopped. Waste, be bound. Sudden loss, be cancelled. Empty pocket, be filled. Provision, stay with me.
+
+The bag with holes is mended. What God gives me, I will keep.
+
+[WAVE 2 — THE POVERTY CURSE]
+
+I break every curse of poverty spoken over my life and my family, and I declare that Christ has redeemed me from it. The curse that says my family will always struggle. The word that says I will never own anything. The pattern of lack that ran through my parents and my grandparents. The shame of always borrowing and never lending. The voice that says this is just how it is for people like me. I bring it all under the blood of Jesus tonight.
+
+A curse needs a legal right to land, and tonight every legal right is removed. Jesus Christ became a curse for me on the cross, so that the blessing of Abraham could come on me. The exchange is finished. The curse went to the cross. The blessing came to me.
+
+It is written in Galatians 3 and verses 13 and 14. Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree: That the blessing of Abraham might come on the Gentiles through Jesus Christ; that we might receive the promise of the Spirit through faith.
+
+I lift this word like a title deed. Redeemed from the curse. The blessing of Abraham, mine through Christ Jesus. Abraham was a man God blessed so that he could be a blessing. And that is my portion too.
+
+Every curse of poverty on my bloodline, break now. Every word of lack spoken over my life, fall to the ground. And every person who spoke it, I forgive you and I bless you. But the power behind it, I break you in the name of Jesus.
+
+Poverty curse, break. Family pattern of lack, end with me. Borrower's shame, lift off me. Word of struggle, be cancelled. Blessing of Abraham, rest on me. Generation of provision, begin.
+
+The curse went to the cross. The blessing came to me. I am redeemed tonight.
+
+[WAVE 3 — THE DEVOURER]
+
+I rebuke every devourer assigned to my finances, and I declare that the Lord fights for what he has given me. The devourer that eats my harvest just before I gather it. The devourer that attacks my business every time it starts to grow. The devourer that brings sickness, accidents, and crises right when money comes in. The devourer that turns my profit into loss. I bring it before the Lord tonight.
+
+I do not fight the devourer in my own strength. The Lord himself rebukes him for my sake. Every attack on my harvest, the Lord stops it. Every assault on my business, the Lord blocks it. Every crisis sent to swallow my gains, the Lord cancels it. My vine will bear fruit in its season.
+
+It is written in Malachi 3 and verse 11. And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts.
+
+I plant this word in the soil of my work. The Lord rebukes the devourer for my sake. My fruit will not be destroyed. My vine will not lose its fruit before its time. What I have planted, I will harvest.
+
+Every devourer, be rebuked by the Lord now. Every arrow of loss sent against my harvest, go back to the darkness that released you. Every crisis arranged to swallow my gains, be cancelled.
+
+Devourer, be rebuked. Harvest thief, be stopped. Business attack, be blocked. Untimely loss, be cancelled. Fruit of my labor, be preserved. Harvest, come in full.
+
+The devourer is rebuked. My harvest is protected. What I plant, I will reap.
+
+[WAVE 4 — DEBT AND THE CREDITOR]
+
+I bring every debt that has weighed on my life before the throne of God, and I ask him to make a way out the way he did for the widow. The loans that keep growing. The interest that swallows everything. The money I owe to people who are losing patience. The debt I took on in desperation. The fear of the knock on the door. I bring it all to the Lord tonight.
+
+Lord, I take responsibility for what I owe. I do not run from it. But I ask you to do for me what you did for the widow. Show me what I have in the house. Give me ideas, work, and favor to pay what I owe. Soften the hearts of those I owe. Open ways I cannot see. And give me the discipline to stop borrowing for what I cannot afford, so I can walk free.
+
+It is written in Romans 13 and verse 8. Owe no man any thing, but to love one another: for he that loveth another hath fulfilled the law.
+
+I take this word as my goal. Owe no man anything. That is God's desire for me, not to stay in chains, but to walk free. And I hear again the word that came to the widow. Go, sell the oil, and pay thy debt, and live thou and thy children of the rest.
+
+Every spirit that keeps me trapped in debt, I break your hold. Every cycle of borrowing to survive, end. Every chain of interest, loosen. Let the day come when I pay my last debt and live on the rest.
+
+Debt chain, loosen. Borrowing cycle, break. Fear of creditors, leave me. Way of escape, open. Wisdom to pay, come. Freedom from debt, be mine.
+
+The God of the widow is my God. He will make a way, and my children will live free.
+
+[WAVE 5 — RECOVER ALL]
+
+I pursue everything the enemy has stolen from me, and I declare that I will overtake and recover all. The money I lost through fraud and deception. The property that was taken from me. The inheritance withheld. The wages owed and never paid. The opportunities stolen by lies. The years eaten by struggle. Tonight, I go after it all.
+
+When David came home to Ziklag, he found the city burned and his family taken. Everything was gone. His own men talked about stoning him. But David encouraged himself in the Lord his God, and he asked the Lord one question. Shall I pursue? And God answered.
+
+It is written in First Samuel 30 and verse 8. And David enquired at the Lord, saying, Shall I pursue after this troop? shall I overtake them? And he answered him, Pursue: for thou shalt surely overtake them, and without fail recover all.
+
+I take this word as my marching order. Pursue. Overtake. Recover all. And David did. He went after them, and he brought back everything. Nothing was missing, small or great. So I declare tonight, nothing that belongs to me will stay in the hands of the enemy.
+
+Every blessing held in the camp of darkness, be released now. Every stolen resource, come back to me in the name of Jesus. Every door of recovery, open. Where people have wronged me, Lord, bring justice by your hand and by the right means. Where darkness has stolen, let it give back.
+
+Stolen blessing, return. Withheld inheritance, be released. Unpaid wages, be paid. Lost opportunity, come back. Eaten years, be restored. Everything stolen, recovered.
+
+I pursue. I overtake. I recover all. Nothing that is mine will be missing.
+
+[MID-PRAYER CALL]
+
+If you are still with me, do this right now, before we go on. Go to the comments and type this. My God shall supply all my need. Type it as a declaration of faith. Let it stand there as your witness. And then share this prayer with one person who is struggling financially right now. Someone who is afraid of the next bill. Someone who has lost their job. Send it to them tonight. Now, back to the battle.
+
+[WAVE 6 — CLOSED DOORS OF WORK AND FAVOR]
+
+I break every barrier that has kept doors of work and favor closed against me, and I declare that the Lord goes before me and opens them. The job applications that never get answers. The interviews that end in silence. The promotion given to someone else again. The business that cannot find customers. The contracts that collapse at the last minute. The favor that turns to rejection without a reason. I bring every closed door before the Lord tonight.
+
+The Lord goes before me. Every crooked path is made straight. Every gate of brass is broken. Every bar of iron is cut in two. What has been hidden from me is revealed. The right people will remember my name. The right door will open at the right time.
+
+It is written in Isaiah 45 and verses 2 and 3. I will go before thee, and make the crooked places straight: I will break in pieces the gates of brass, and cut in sunder the bars of iron: And I will give thee the treasures of darkness, and hidden riches of secret places, that thou mayest know that I, the Lord, which call thee by thy name, am the God of Israel.
+
+I lift this word like a key before every locked door. The Lord goes before me. The gates of brass break. The bars of iron are cut. And there are treasures in hidden places that God has set aside for me, things I could not find on my own.
+
+Every closed door of work, open now. Every barrier against my promotion, break. Every spirit of rejection, lose your hold. Every hidden opportunity meant for me, be revealed.
+
+Closed door, open. Gate of brass, break. Bar of iron, be cut. Rejection, turn to favor. Hidden treasure, be revealed. Right opportunity, find me.
+
+The Lord goes before me. The doors that were closed will open.
+
+[WAVE 7 — THE HEAD AND NOT THE TAIL]
+
+I break every pattern of stagnation in my finances, and I declare that I will rise, not sink, by the grace of God. The cycle of starting over again and again. The feeling of being stuck while others move forward. The ceiling I keep hitting no matter how hard I work. The years that pass with nothing to show. The voice that says I will always be at the bottom. I refuse it tonight.
+
+My life is not stuck. God has not finished with me. Every ceiling over my progress, I break it by the blood of Jesus. Every chain holding me in one place, I loose it. I will grow. I will move forward. I will rise to the place God has prepared for me.
+
+It is written in Deuteronomy 28 and verse 13. And the Lord shall make thee the head, and not the tail; and thou shalt be above only, and thou shalt not be beneath; if that thou hearken unto the commandments of the Lord thy God, which I command thee this day, to observe and to do them.
+
+I fasten this word over my future. The head and not the tail. Above only, and not beneath. Not by pride, and not by stepping on anyone, but by the faithful hand of God lifting me up as I walk with him.
+
+Every ceiling, break. Every cycle of starting over, end. Every power keeping me beneath, release me.
+
+Stagnation, break. Ceiling, shatter. Starting over, end. Bottom place, release me. Rising, begin. Head and not tail, be my portion.
+
+I will rise. I will not stay beneath. The Lord is lifting me up.
+
+[WAVE 8 — THE WORK OF MY HANDS]
+
+I bring the work of my hands before the Lord, and I ask him to bless everything I put my hand to. My job and my business. My trade and my skills. The small things I sell and the services I offer. The ideas in my head that have not yet become income. The land I farm and the shop I keep. Tonight, I dedicate my work to God.
+
+Lord, bless the work of my hands. Give me excellence. Give me diligence. Give me ideas that bring provision. Give me favor with customers, employers, and partners. Let my work be honest, and let it be fruitful. Let me be a blessing to the people I serve, and let you be honored in how I work.
+
+It is written in Deuteronomy 28 and verse 12. The Lord shall open unto thee his good treasure, the heaven to give the rain unto thy land in his season, and to bless all the work of thine hand: and thou shalt lend unto many nations, and thou shalt not borrow.
+
+And it is written in Psalm 1 and verse 3. And he shall be like a tree planted by the rivers of water, that bringeth forth his fruit in his season; his leaf also shall not wither; and whatsoever he doeth shall prosper.
+
+I plant these words like a tree by the river. The Lord opens his good treasure. He blesses all the work of my hands. Like a tree planted by the waters, my leaf will not wither, and in its season, my work will bear fruit.
+
+Every curse on the work of my hands, be broken. Every frustration in my labor, be lifted. Every idea from God sleeping in me, wake up and bear fruit.
+
+Work of my hands, be blessed. Labor in vain, end. Ideas from God, rise. Customers, come. Favor, flow. Fruit in season, appear.
+
+The Lord blesses the work of my hands. I will not labor in vain.
+
+[WAVE 9 — FEAR ABOUT MONEY]
+
+I break every spirit of fear that has gripped me about money, and I lay every worry about tomorrow at the feet of Jesus. The fear that wakes me in the night. The panic when I look at my account. The dread of the next bill. The shame I feel when others know I am struggling. The worry about how my children will eat, study, and survive. I bring all of it to the Lord tonight.
+
+Fear is not my counselor. Panic is not my guide. The Lord is my shepherd. When I seek him first, he adds what I need. I will still work. I will still plan. I will still make wise choices. But I will not carry tomorrow's weight tonight. I will lie down in peace.
+
+It is written in Matthew 6 and verses 31 to 33. Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed? (For after all these things do the Gentiles seek:) for your heavenly Father knoweth that ye have need of all these things. But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.
+
+I lay this word over my mind like a cool hand on a fevered head. Your heavenly Father knows what you need. Seek the kingdom first. And all these things shall be added unto you.
+
+Every fear about money, leave me now. Every sleepless worry, be silenced. Every shame about my situation, lift. Let the peace of God guard my heart tonight.
+
+Fear, go. Panic, be still. Worry, be released. Shame, lift off me. Peace, fill my mind. Trust in God, rise in me.
+
+My Father knows what I need. I seek him first, and he will take care of the rest.
+
+[WAVE 10 — MY CHILDREN WILL NOT BEG]
+
+I cover my children and my family line, and I declare that the cycle of lack ends with this generation. My children's school fees. My children's food and clothing. My children's future work and businesses. The inheritance I will leave behind. The provision my grandchildren will need. I bring every generation after me under the blood of Jesus tonight.
+
+My children will not inherit my struggle. They will inherit my testimony. They will not grow up believing lack is normal. They will grow up watching God provide. And where I have made mistakes with money, Lord, do not let my children pay for them. Teach them wisdom. Teach them to work, to save, to give, and to trust you.
+
+It is written in Psalm 37 and verse 25. I have been young, and now am old; yet have I not seen the righteous forsaken, nor his seed begging bread.
+
+I wrap this word around my children like a promise sealed for the future. The righteous are not forsaken. Their seed will not beg for bread. My children will be provided for, and they will provide for others.
+
+Every cycle of lack in my family line, end tonight. Every curse on my children's provision, be broken. Every door of opportunity meant for them, stay open.
+
+Generational lack, end. Children's provision, be secured. School fees, be paid. Future work, be blessed. Inheritance, be built. Generation of provision, rise.
+
+My children will not beg for bread. They will walk in the provision of God.
+
+[WAVE 11 — RESTORATION AND OVERFLOW]
+
+I receive the restoration of God over every area of lack in my life, and I declare that the season of overflow is coming. The years of struggle, restored. The losses, repaid. The empty jars, filled. The dry ground, watered. Tonight I do not only ask to survive. I ask to be able to give, to help, and to bless others.
+
+God does not only stop the bleeding. He restores. He gives back the years the locust ate. He fills the empty jars until there is no vessel left. And he gives enough so that we can abound in every good work, helping the widow, the orphan, the neighbor, and the church.
+
+It is written in Joel 2 and verses 25 and 26. And I will restore to you the years that the locust hath eaten, the cankerworm, and the caterpiller, and the palmerworm, my great army which I sent among you. And ye shall eat in plenty, and be satisfied, and praise the name of the Lord your God, that hath dealt wondrously with you: and my people shall never be ashamed.
+
+And it is written in Second Corinthians 9 and verse 8. And God is able to make all grace abound toward you; that ye, always having all sufficiency in all things, may abound to every good work.
+
+I lift these words like full jars of oil. Years restored. Plenty to eat. All grace abounding. All sufficiency in all things. Enough to abound in every good work.
+
+Every year eaten by the locust, be restored. Every empty jar in my house, be filled. And let me become a channel of blessing to others.
+
+Restoration, come. Lost years, be repaid. Empty jars, be filled. All sufficiency, be mine. Overflow, begin. Channel of blessing, open.
+
+The God who fills empty jars is filling mine. I will be blessed, and I will be a blessing.
+
+[THE FINAL WORD]
+
+Now hear the verdict of heaven over your provision tonight. Every hole in your bag, sealed. Every poverty curse, broken. Every devourer, rebuked. Every chain of debt, loosened. Every stolen blessing, called back. Every closed door, opening. Every ceiling, shattered. Every fear about money, silenced. Every generational cycle of lack, ended.
+
+Your work, blessed. Your home, provided for. Your children, covered. Your future, in the hands of God.
+
+Now receive the Word over every part of this battle.
+
+It is he that giveth thee power to get wealth. Strength, wisdom, and opportunity are coming to you.
+
+My God shall supply all your need according to his riches in glory by Christ Jesus. Not according to your lack. According to his riches.
+
+I will rebuke the devourer for your sakes. What attacked your harvest is stopped.
+
+Pursue: for thou shalt surely overtake them, and without fail recover all. What was stolen is coming back.
+
+They that seek the LORD shall not want any good thing. You seek him, and you will not lack.
+
+I will restore to you the years. What was eaten is being repaid.
+
+So hear the closing verdict. Lack is not your inheritance. Struggle is not your identity. The bag with holes is mended. The empty jars are being filled. And the God who did it for the widow is doing it for you.
+
+Tomorrow, when you wake up, do not sit and wait. Ask the widow's question. What do I have in the house? Look at your hands, your skills, your ideas, your relationships. Then start pouring. The oil flows when you pour.
+
+Before we rest, go to the comments one more time and type it again. My God shall supply all my need. Let it stand there as your testimony. And if you know someone who is carrying a heavy financial burden tonight, send this prayer to them. It may be the encouragement they need to keep going.
+
+[THE QUIET NIGHT]
+
+Now let the battle settle. The fight is done for tonight. You have brought every need before the Lord, and he has heard you.
+
+Let your shoulders drop. Let your hands rest open. Take a slow breath in. And let it go. Again. Breathe in slowly. And let it go.
+
+The numbers that kept you awake are in his hands now. The bills on the table are not bigger than your God. You do not have to solve tomorrow tonight. Tomorrow, he will be there before you.
+
+It is written in Psalm 23 and verse 1. The Lord is my shepherd; I shall not want.
+
+The Lord is your shepherd. A shepherd does not let his sheep go hungry. He knows where the green pastures are. He knows where the still waters are. And he leads you there, one step at a time.
+
+Breathe in. And let it go.
+
+Let your mind slow down. Every worry you carried into this night, set it down at his feet. You did your part tonight. You prayed. You declared his Word. Now let him do his part while you rest.
+
+It is written in Psalm 4 and verse 8. I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.
+
+Only the Lord makes you dwell in safety. Not your savings. Not your salary. The Lord. And he is here.
+
+Let your breath grow slow and deep. Let your eyes grow heavy. Let your body become still.
+
+You are provided for. You are covered. You are his.
+
+Breathe in. And rest.
+
+[THE SEAL]
+
+Say this softly with me, as your own. Lord, you are my shepherd. I shall not want. You give me power to get wealth. You supply all my need. Every curse of lack is broken. Every hole is sealed. Everything stolen is coming back. I rest in your provision tonight.
+
+Father, we seal this prayer now. Seal every word spoken here tonight. Seal every door you have opened, and let no power shut it. Seal every blessing you have released, and let no devourer touch it. Give this child of God wisdom when they wake, strength for their work, and favor wherever they go. And let this household see your provision with their own eyes.
+
+Let every chain that broke tonight stay broken. Let every door that opened stay open. Let every empty jar be filled.
+
+In the mighty name of Jesus Christ, our Provider, our Shepherd, the One who became poor so that we might be made rich in him. Amen.
