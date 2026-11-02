@@ -48,9 +48,9 @@ For the master image, write one 8–10 second, seamless, almost-still motion pro
 ### D. Thumbnails (give 5)
 Template, matching the niche leaders:
 - **Layout:** text column on the left 55–60% over a darkened background; one glowing hero object on the right 40–45%; the bottom-right corner kept clear for the timestamp; no faces.
-- **Headline:** 2–3 lines of ultra-bold condensed caps (Anton or Oswald). The first line is silver-white metallic and the payoff line is a fire-gold gradient, with a dark stroke and glow.
-- **Below the headline:** a gold flourish divider, then a 3-line subline of keywords in gold caps (witchcraft, curses, evil attacks, night protection, etc.), then an optional ribbon with the channel name between gold scroll ornaments.
-- **For each thumbnail give:** Visual Concept, Text Overlay (headline + subline), Emotion Trigger, a Background Prompt (the left side dark and empty, "no text"), and an All-in-one Prompt with the text written in, for text-capable generators.
+- **Headline:** 2–5 words in total, on 2 lines, in ultra-bold condensed caps (Anton or Oswald), big enough to fill half the frame and read on a phone. The first line is silver-white metallic and the payoff line is a fire-gold gradient, with a dark stroke and glow. Examples: "3AM? / PLAY THIS", "CASE CLOSED / YOU'RE FREE", "SENT BACK / BY FIRE".
+- **No subline.** Keywords belong in the title, not on the thumbnail. An optional small ribbon with the channel name may sit under the headline.
+- **For each thumbnail give:** Visual Concept, Text Overlay (the 2 headline lines), Emotion Trigger, a Background Prompt (the left side dark and empty, "no text"), and an All-in-one Prompt with the text written in, for text-capable generators.
 - **Spread the emotion triggers across the five:** retaliation (sent back or doubled), protection (sealed, nothing enters), urgency (tonight), named fear overcome (the destroyer, night terrors), awe and comfort (angels, chariots of fire).
 - Recommend one to lead and one to A/B test.
 

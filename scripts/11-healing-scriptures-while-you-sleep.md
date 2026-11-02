@@ -1,0 +1,545 @@
+[OPENING]
+
+Welcome. Before you sleep tonight, let the Word of God be the last voice you hear. For the next hour, we will read the promises of God slowly and gently, from the King James Bible. Promises of healing. Promises of peace. Promises of protection through the night. You do not need to do anything but listen. Let your body rest. Let your breathing slow down. And let these words settle into your heart, one verse at a time.
+
+If you are carrying pain in your body tonight, or heaviness in your mind, or grief in your heart, bring it here. God heals in many ways. Through his Word and through prayer. Through rest and through time. Through doctors, nurses, and medicine, which are also gifts from his hand. And through his presence, which never leaves you. Tonight, we simply open the Scriptures and let him speak.
+
+If you fall asleep before the end, that is perfectly fine. Let these verses keep playing in the room. The Word of God does not stop working when you close your eyes.
+
+Let us begin with a short prayer. Father, thank you for your Word. As we read your promises tonight, let them bring comfort to every place that hurts, peace to every anxious thought, and rest to every tired body. Watch over this home through the night. In the name of Jesus Christ. Amen.
+
+[THE LORD WHO HEALS]
+
+We begin with the God who heals. From the very beginning, he made himself known by this name. The Lord that healeth thee. Listen to his promises, and let them speak to your body as you rest.
+
+Exodus 15, verse 26.
+
+If thou wilt diligently hearken to the voice of the Lord thy God, and wilt do that which is right in his sight, and wilt give ear to his commandments, and keep all his statutes, I will put none of these diseases upon thee, which I have brought upon the Egyptians: for I am the Lord that healeth thee.
+
+Psalm 103, verses 1 to 13.
+
+Bless the Lord, O my soul: and all that is within me, bless his holy name. Bless the Lord, O my soul, and forget not all his benefits: Who forgiveth all thine iniquities; who healeth all thy diseases; Who redeemeth thy life from destruction; who crowneth thee with lovingkindness and tender mercies; Who satisfieth thy mouth with good things; so that thy youth is renewed like the eagle’s. The Lord executeth righteousness and judgment for all that are oppressed. He made known his ways unto Moses, his acts unto the children of Israel. The Lord is merciful and gracious, slow to anger, and plenteous in mercy. He will not always chide: neither will he keep his anger for ever. He hath not dealt with us after our sins; nor rewarded us according to our iniquities. For as the heaven is high above the earth, so great is his mercy toward them that fear him. As far as the east is from the west, so far hath he removed our transgressions from us. Like as a father pitieth his children, so the Lord pitieth them that fear him.
+
+Psalm 107, verses 19 and 20.
+
+Then they cry unto the Lord in their trouble, and he saveth them out of their distresses. He sent his word, and healed them, and delivered them from their destructions.
+
+Jeremiah 17, verse 14.
+
+Heal me, O Lord, and I shall be healed; save me, and I shall be saved: for thou art my praise.
+
+Jeremiah 30, verse 17.
+
+For I will restore health unto thee, and I will heal thee of thy wounds, saith the Lord; because they called thee an Outcast, saying, This is Zion, whom no man seeketh after.
+
+Isaiah 53, verses 4 and 5.
+
+Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted. But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.
+
+Matthew 8, verses 16 and 17.
+
+When the even was come, they brought unto him many that were possessed with devils: and he cast out the spirits with his word, and healed all that were sick: That it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare our sicknesses.
+
+Mark 5, verse 34.
+
+And he said unto her, Daughter, thy faith hath made thee whole; go in peace, and be whole of thy plague.
+
+Psalm 147, verse 3.
+
+He healeth the broken in heart, and bindeth up their wounds.
+
+Proverbs 4, verses 20 to 22.
+
+My son, attend to my words; incline thine ear unto my sayings. Let them not depart from thine eyes; keep them in the midst of thine heart. For they are life unto those that find them, and health to all their flesh.
+
+Isaiah 58, verse 8.
+
+Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall be thy rereward.
+
+Isaiah 35, verses 3 to 6.
+
+Strengthen ye the weak hands, and confirm the feeble knees. Say to them that are of a fearful heart, Be strong, fear not: behold, your God will come with vengeance, even God with a recompence; he will come and save you. Then the eyes of the blind shall be opened, and the ears of the deaf shall be unstopped. Then shall the lame man leap as an hart, and the tongue of the dumb sing: for in the wilderness shall waters break out, and streams in the desert.
+
+Malachi 4, verse 2.
+
+But unto you that fear my name shall the Sun of righteousness arise with healing in his wings; and ye shall go forth, and grow up as calves of the stall.
+
+Third John, verse 2.
+
+Beloved, I wish above all things that thou mayest prosper and be in health, even as thy soul prospereth.
+
+Psalm 30, verse 2.
+
+O Lord my God, I cried unto thee, and thou hast healed me.
+
+Exodus 23, verse 25.
+
+And ye shall serve the Lord your God, and he shall bless thy bread, and thy water; and I will take sickness away from the midst of thee.
+
+Psalm 41, verse 3.
+
+The Lord will strengthen him upon the bed of languishing: thou wilt make all his bed in his sickness.
+
+Psalm 6, verse 2.
+
+Have mercy upon me, O Lord; for I am weak: O Lord, heal me; for my bones are vexed.
+
+Hosea 6, verse 1.
+
+Come, and let us return unto the Lord: for he hath torn, and he will heal us; he hath smitten, and he will bind us up.
+
+Isaiah 57, verses 18 and 19.
+
+I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners. I create the fruit of the lips; Peace, peace to him that is far off, and to him that is near, saith the Lord; and I will heal him.
+
+Matthew 8, verses 2 and 3.
+
+And, behold, there came a leper and worshipped him, saying, Lord, if thou wilt, thou canst make me clean. And Jesus put forth his hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was cleansed.
+
+Matthew 9, verse 35.
+
+And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the gospel of the kingdom, and healing every sickness and every disease among the people.
+
+Matthew 14, verse 14.
+
+And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick.
+
+Acts 10, verse 38.
+
+How God anointed Jesus of Nazareth with the Holy Ghost and with power: who went about doing good, and healing all that were oppressed of the devil; for God was with him.
+
+First Peter 2, verse 24.
+
+Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.
+
+Psalm 118, verse 17.
+
+I shall not die, but live, and declare the works of the Lord.
+
+Breathe in slowly. And let it go. The Lord who heals is with you tonight.
+
+[PEACE FOR YOUR MIND]
+
+Now let these words speak to your mind. If your thoughts have been racing, if worry has followed you into bed, let the peace of God come and settle over you. Breathe slowly as you listen.
+
+Isaiah 26, verses 3 and 4.
+
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee. Trust ye in the Lord for ever: for in the Lord Jehovah is everlasting strength:
+
+John 14, verse 27.
+
+Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.
+
+Philippians 4, verses 6 to 8.
+
+Be careful for nothing; but in every thing by prayer and supplication with thanksgiving let your requests be made known unto God. And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus. Finally, brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things.
+
+Matthew 11, verses 28 to 30.
+
+Come unto me, all ye that labour and are heavy laden, and I will give you rest. Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls. For my yoke is easy, and my burden is light.
+
+First Peter 5, verse 7.
+
+Casting all your care upon him; for he careth for you.
+
+Psalm 94, verse 19.
+
+In the multitude of my thoughts within me thy comforts delight my soul.
+
+Second Timothy 1, verse 7.
+
+For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
+
+Isaiah 41, verse 10.
+
+Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness.
+
+Psalm 55, verse 22.
+
+Cast thy burden upon the Lord, and he shall sustain thee: he shall never suffer the righteous to be moved.
+
+Romans 15, verse 13.
+
+Now the God of hope fill you with all joy and peace in believing, that ye may abound in hope, through the power of the Holy Ghost.
+
+Colossians 3, verse 15.
+
+And let the peace of God rule in your hearts, to the which also ye are called in one body; and be ye thankful.
+
+Psalm 46, verse 10.
+
+Be still, and know that I am God: I will be exalted among the heathen, I will be exalted in the earth.
+
+Psalm 29, verse 11.
+
+The Lord will give strength unto his people; the Lord will bless his people with peace.
+
+Isaiah 30, verse 15.
+
+For thus saith the Lord God, the Holy One of Israel; In returning and rest shall ye be saved; in quietness and in confidence shall be your strength: and ye would not.
+
+Psalm 56, verses 3 and 4.
+
+What time I am afraid, I will trust in thee. In God I will praise his word, in God I have put my trust; I will not fear what flesh can do unto me.
+
+Psalm 62, verses 1 and 2.
+
+Truly my soul waiteth upon God: from him cometh my salvation. He only is my rock and my salvation; he is my defence; I shall not be greatly moved.
+
+Psalm 62, verses 5 to 8.
+
+My soul, wait thou only upon God; for my expectation is from him. He only is my rock and my salvation: he is my defence; I shall not be moved. In God is my salvation and my glory: the rock of my strength, and my refuge, is in God. Trust in him at all times; ye people, pour out your heart before him: God is a refuge for us. Selah.
+
+Psalm 37, verses 3 to 7.
+
+Trust in the Lord, and do good; so shalt thou dwell in the land, and verily thou shalt be fed. Delight thyself also in the Lord; and he shall give thee the desires of thine heart. Commit thy way unto the Lord; trust also in him; and he shall bring it to pass. And he shall bring forth thy righteousness as the light, and thy judgment as the noonday. Rest in the Lord, and wait patiently for him: fret not thyself because of him who prospereth in his way, because of the man who bringeth wicked devices to pass.
+
+Isaiah 32, verses 17 and 18.
+
+And the work of righteousness shall be peace; and the effect of righteousness quietness and assurance for ever. And my people shall dwell in a peaceable habitation, and in sure dwellings, and in quiet resting places;
+
+Matthew 6, verse 34.
+
+Take therefore no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day is the evil thereof.
+
+Second Thessalonians 3, verse 16.
+
+Now the Lord of peace himself give you peace always by all means. The Lord be with you all.
+
+Breathe in. And let it go. Let his peace guard your heart and your mind.
+
+[PROTECTION THROUGH THE NIGHT]
+
+Now we read the promises of protection. You are not alone in the dark. The One who keeps you does not sleep. Let these words stand guard over your home tonight.
+
+Psalm 91.
+
+He that dwelleth in the secret place of the most High shall abide under the shadow of the Almighty. I will say of the Lord, He is my refuge and my fortress: my God; in him will I trust. Surely he shall deliver thee from the snare of the fowler, and from the noisome pestilence. He shall cover thee with his feathers, and under his wings shalt thou trust: his truth shall be thy shield and buckler. Thou shalt not be afraid for the terror by night; nor for the arrow that flieth by day; Nor for the pestilence that walketh in darkness; nor for the destruction that wasteth at noonday. A thousand shall fall at thy side, and ten thousand at thy right hand; but it shall not come nigh thee. Only with thine eyes shalt thou behold and see the reward of the wicked. Because thou hast made the Lord, which is my refuge, even the most High, thy habitation; There shall no evil befall thee, neither shall any plague come nigh thy dwelling. For he shall give his angels charge over thee, to keep thee in all thy ways. They shall bear thee up in their hands, lest thou dash thy foot against a stone. Thou shalt tread upon the lion and adder: the young lion and the dragon shalt thou trample under feet. Because he hath set his love upon me, therefore will I deliver him: I will set him on high, because he hath known my name. He shall call upon me, and I will answer him: I will be with him in trouble; I will deliver him, and honour him. With long life will I satisfy him, and shew him my salvation.
+
+Psalm 121.
+
+I will lift up mine eyes unto the hills, from whence cometh my help. My help cometh from the Lord, which made heaven and earth. He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The sun shall not smite thee by day, nor the moon by night. The Lord shall preserve thee from all evil: he shall preserve thy soul. The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore.
+
+Psalm 3, verses 3 to 5.
+
+But thou, O Lord, art a shield for me; my glory, and the lifter up of mine head. I cried unto the Lord with my voice, and he heard me out of his holy hill. Selah. I laid me down and slept; I awaked; for the Lord sustained me.
+
+Proverbs 3, verses 24 to 26.
+
+When thou liest down, thou shalt not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet. Be not afraid of sudden fear, neither of the desolation of the wicked, when it cometh. For the Lord shall be thy confidence, and shall keep thy foot from being taken.
+
+Psalm 34, verse 7.
+
+The angel of the Lord encampeth round about them that fear him, and delivereth them.
+
+Deuteronomy 33, verse 27.
+
+The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee; and shall say, Destroy them.
+
+Second Thessalonians 3, verse 3.
+
+But the Lord is faithful, who shall stablish you, and keep you from evil.
+
+Isaiah 54, verse 17.
+
+No weapon that is formed against thee shall prosper; and every tongue that shall rise against thee in judgment thou shalt condemn. This is the heritage of the servants of the Lord, and their righteousness is of me, saith the Lord.
+
+Psalm 27, verses 1 to 5.
+
+The Lord is my light and my salvation; whom shall I fear? the Lord is the strength of my life; of whom shall I be afraid? When the wicked, even mine enemies and my foes, came upon me to eat up my flesh, they stumbled and fell. Though an host should encamp against me, my heart shall not fear: though war should rise against me, in this will I be confident. One thing have I desired of the Lord, that will I seek after; that I may dwell in the house of the Lord all the days of my life, to behold the beauty of the Lord, and to enquire in his temple. For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
+
+Psalm 32, verse 7.
+
+Thou art my hiding place; thou shalt preserve me from trouble; thou shalt compass me about with songs of deliverance. Selah.
+
+Psalm 61, verses 1 to 4.
+
+Hear my cry, O God; attend unto my prayer. From the end of the earth will I cry unto thee, when my heart is overwhelmed: lead me to the rock that is higher than I. For thou hast been a shelter for me, and a strong tower from the enemy. I will abide in thy tabernacle for ever: I will trust in the covert of thy wings. Selah.
+
+Proverbs 18, verse 10.
+
+The name of the Lord is a strong tower: the righteous runneth into it, and is safe.
+
+Nahum 1, verse 7.
+
+The Lord is good, a strong hold in the day of trouble; and he knoweth them that trust in him.
+
+Psalm 125, verse 2.
+
+As the mountains are round about Jerusalem, so the Lord is round about his people from henceforth even for ever.
+
+Psalm 34, verses 1 to 8.
+
+I will bless the Lord at all times: his praise shall continually be in my mouth. My soul shall make her boast in the Lord: the humble shall hear thereof, and be glad. O magnify the Lord with me, and let us exalt his name together. I sought the Lord, and he heard me, and delivered me from all my fears. They looked unto him, and were lightened: and their faces were not ashamed. This poor man cried, and the Lord heard him, and saved him out of all his troubles. The angel of the Lord encampeth round about them that fear him, and delivereth them. O taste and see that the Lord is good: blessed is the man that trusteth in him.
+
+Psalm 127, verses 1 and 2.
+
+Except the Lord build the house, they labour in vain that build it: except the Lord keep the city, the watchman waketh but in vain. It is vain for you to rise up early, to sit up late, to eat the bread of sorrows: for so he giveth his beloved sleep.
+
+Psalm 4, verse 8.
+
+I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.
+
+Breathe in slowly. And let it go. You are kept, and you are safe.
+
+[STRENGTH FOR THE WEARY]
+
+If you are tired tonight, tired in body, tired in spirit, tired of carrying so much, these promises are for you. God gives strength to the weary. Let him carry you now.
+
+Isaiah 40, verses 28 to 31.
+
+Hast thou not known? hast thou not heard, that the everlasting God, the Lord, the Creator of the ends of the earth, fainteth not, neither is weary? there is no searching of his understanding. He giveth power to the faint; and to them that have no might he increaseth strength. Even the youths shall faint and be weary, and the young men shall utterly fall: But they that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint.
+
+Psalm 23.
+
+The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters. He restoreth my soul: he leadeth me in the paths of righteousness for his name’s sake. Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over. Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.
+
+Second Corinthians 12, verse 9.
+
+And he said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. Most gladly therefore will I rather glory in my infirmities, that the power of Christ may rest upon me.
+
+Psalm 73, verse 26.
+
+My flesh and my heart faileth: but God is the strength of my heart, and my portion for ever.
+
+Psalm 46, verses 1 to 7.
+
+God is our refuge and strength, a very present help in trouble. Therefore will not we fear, though the earth be removed, and though the mountains be carried into the midst of the sea; Though the waters thereof roar and be troubled, though the mountains shake with the swelling thereof. Selah. There is a river, the streams whereof shall make glad the city of God, the holy place of the tabernacles of the most High. God is in the midst of her; she shall not be moved: God shall help her, and that right early. The heathen raged, the kingdoms were moved: he uttered his voice, the earth melted. The Lord of hosts is with us; the God of Jacob is our refuge. Selah.
+
+Isaiah 43, verses 1 and 2.
+
+But now thus saith the Lord that created thee, O Jacob, and he that formed thee, O Israel, Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine. When thou passest through the waters, I will be with thee; and through the rivers, they shall not overflow thee: when thou walkest through the fire, thou shalt not be burned; neither shall the flame kindle upon thee.
+
+Psalm 18, verses 1 and 2.
+
+I will love thee, O Lord, my strength. The Lord is my rock, and my fortress, and my deliverer; my God, my strength, in whom I will trust; my buckler, and the horn of my salvation, and my high tower.
+
+Psalm 28, verse 7.
+
+The Lord is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.
+
+Isaiah 12, verse 2.
+
+Behold, God is my salvation; I will trust, and not be afraid: for the Lord Jehovah is my strength and my song; he also is become my salvation.
+
+Deuteronomy 31, verse 6.
+
+Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
+
+Joshua 1, verse 9.
+
+Have not I commanded thee? Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.
+
+Philippians 4, verse 13.
+
+I can do all things through Christ which strengtheneth me.
+
+Habakkuk 3, verse 19.
+
+The Lord God is my strength, and he will make my feet like hinds’ feet, and he will make me to walk upon mine high places. To the chief singer on my stringed instruments.
+
+Breathe in. And let it go. His strength is made perfect in your weakness.
+
+[COMFORT FOR THE BROKEN]
+
+For the one who is grieving tonight, or hurting in a way no one else can see, the Lord is near. Let these words hold you gently.
+
+Psalm 34, verses 17 to 19.
+
+The righteous cry, and the Lord heareth, and delivereth them out of all their troubles. The Lord is nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit. Many are the afflictions of the righteous: but the Lord delivereth him out of them all.
+
+Matthew 5, verse 4.
+
+Blessed are they that mourn: for they shall be comforted.
+
+Second Corinthians 1, verses 3 and 4.
+
+Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; Who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.
+
+Psalm 30, verse 5.
+
+For his anger endureth but a moment; in his favour is life: weeping may endure for a night, but joy cometh in the morning.
+
+Lamentations 3, verses 22 to 26.
+
+It is of the Lord’s mercies that we are not consumed, because his compassions fail not. They are new every morning: great is thy faithfulness. The Lord is my portion, saith my soul; therefore will I hope in him. The Lord is good unto them that wait for him, to the soul that seeketh him. It is good that a man should both hope and quietly wait for the salvation of the Lord.
+
+Jeremiah 29, verses 11 to 13.
+
+For I know the thoughts that I think toward you, saith the Lord, thoughts of peace, and not of evil, to give you an expected end. Then shall ye call upon me, and ye shall go and pray unto me, and I will hearken unto you. And ye shall seek me, and find me, when ye shall search for me with all your heart.
+
+Isaiah 43, verses 18 and 19.
+
+Remember ye not the former things, neither consider the things of old. Behold, I will do a new thing; now it shall spring forth; shall ye not know it? I will even make a way in the wilderness, and rivers in the desert.
+
+Psalm 42, verse 11.
+
+Why art thou cast down, O my soul? and why art thou disquieted within me? hope thou in God: for I shall yet praise him, who is the health of my countenance, and my God.
+
+Isaiah 61, verses 1 to 3.
+
+The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound; To proclaim the acceptable year of the Lord, and the day of vengeance of our God; to comfort all that mourn; To appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness; that they might be called trees of righteousness, the planting of the Lord, that he might be glorified.
+
+Romans 8, verse 28.
+
+And we know that all things work together for good to them that love God, to them who are the called according to his purpose.
+
+John 16, verse 33.
+
+These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+
+Revelation 21, verse 4.
+
+And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
+
+Psalm 116, verses 1 to 8.
+
+I love the Lord, because he hath heard my voice and my supplications. Because he hath inclined his ear unto me, therefore will I call upon him as long as I live. The sorrows of death compassed me, and the pains of hell gat hold upon me: I found trouble and sorrow. Then called I upon the name of the Lord; O Lord, I beseech thee, deliver my soul. Gracious is the Lord, and righteous; yea, our God is merciful. The Lord preserveth the simple: I was brought low, and he helped me. Return unto thy rest, O my soul; for the Lord hath dealt bountifully with thee. For thou hast delivered my soul from death, mine eyes from tears, and my feet from falling.
+
+John 14, verses 1 to 3.
+
+Let not your heart be troubled: ye believe in God, believe also in me. In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also.
+
+Psalm 56, verse 8.
+
+Thou tellest my wanderings: put thou my tears into thy bottle: are they not in thy book?
+
+Second Corinthians 4, verses 16 to 18.
+
+For which cause we faint not; but though our outward man perish, yet the inward man is renewed day by day. For our light affliction, which is but for a moment, worketh for us a far more exceeding and eternal weight of glory; While we look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.
+
+Breathe in slowly. And let it go. He is close to the brokenhearted, and he is close to you.
+
+[HIS LOVE AND HIS PRESENCE]
+
+And now, as you drift toward sleep, hear how much you are loved. Nothing you carry tonight can separate you from the love of God.
+
+Zephaniah 3, verse 17.
+
+The Lord thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing.
+
+Jeremiah 31, verse 3.
+
+The Lord hath appeared of old unto me, saying, Yea, I have loved thee with an everlasting love: therefore with lovingkindness have I drawn thee.
+
+Deuteronomy 31, verse 8.
+
+And the Lord, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed.
+
+Isaiah 49, verses 15 and 16.
+
+Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee. Behold, I have graven thee upon the palms of my hands; thy walls are continually before me.
+
+Psalm 139, verses 1 to 12.
+
+O Lord, thou hast searched me, and known me. Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. Thou compassest my path and my lying down, and art acquainted with all my ways. For there is not a word in my tongue, but, lo, O Lord, thou knowest it altogether. Thou hast beset me behind and before, and laid thine hand upon me. Such knowledge is too wonderful for me; it is high, I cannot attain unto it. Whither shall I go from thy spirit? or whither shall I flee from thy presence? If I ascend up into heaven, thou art there: if I make my bed in hell, behold, thou art there. If I take the wings of the morning, and dwell in the uttermost parts of the sea; Even there shall thy hand lead me, and thy right hand shall hold me. If I say, Surely the darkness shall cover me; even the night shall be light about me. Yea, the darkness hideth not from thee; but the night shineth as the day: the darkness and the light are both alike to thee.
+
+John 10, verses 27 to 29.
+
+My sheep hear my voice, and I know them, and they follow me: And I give unto them eternal life; and they shall never perish, neither shall any man pluck them out of my hand. My Father, which gave them me, is greater than all; and no man is able to pluck them out of my Father’s hand.
+
+Romans 8, verses 31 to 39.
+
+What shall we then say to these things? If God be for us, who can be against us? He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things? Who shall lay any thing to the charge of God’s elect? It is God that justifieth. Who is he that condemneth? It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us. Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? As it is written, For thy sake we are killed all the day long; we are accounted as sheep for the slaughter. Nay, in all these things we are more than conquerors through him that loved us. For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come, Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.
+
+Psalm 16, verse 11.
+
+Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.
+
+First John 4, verse 16.
+
+And we have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him.
+
+First John 4, verse 18.
+
+There is no fear in love; but perfect love casteth out fear: because fear hath torment. He that feareth is not made perfect in love.
+
+Ephesians 3, verses 17 to 19.
+
+That Christ may dwell in your hearts by faith; that ye, being rooted and grounded in love, May be able to comprehend with all saints what is the breadth, and length, and depth, and height; And to know the love of Christ, which passeth knowledge, that ye might be filled with all the fulness of God.
+
+Psalm 36, verse 7.
+
+How excellent is thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings.
+
+Isaiah 54, verse 10.
+
+For the mountains shall depart, and the hills be removed; but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the Lord that hath mercy on thee.
+
+John 3, verse 16.
+
+For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.
+
+Breathe in. And let it go. You are loved with an everlasting love.
+
+[THE BLESSING]
+
+Father, thank you for every promise we have heard tonight. Let your Word do its work in this body, this mind, and this home while we sleep. Where there is pain, bring your comfort and your healing. Where there is fear, bring your peace. Where there is weariness, bring your strength. Watch over every person in this house through the night, and let them wake in the morning to your mercy, which is new every morning. In the name of Jesus Christ. Amen.
+
+And now, receive this blessing, spoken over the people of God for thousands of years.
+
+Numbers 6, verses 24 to 26.
+
+The Lord bless thee, and keep thee: The Lord make his face shine upon thee, and be gracious unto thee: The Lord lift up his countenance upon thee, and give thee peace.
+
+[SOFTLY INTO SLEEP]
+
+If you are still awake, rest now as we read some of these promises once more, slowly and softly, into the night.
+
+Psalm 23.
+
+The Lord is my shepherd; I shall not want. He maketh me to lie down in green pastures: he leadeth me beside the still waters. He restoreth my soul: he leadeth me in the paths of righteousness for his name’s sake. Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me. Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over. Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.
+
+Psalm 91, verses 1 and 2.
+
+He that dwelleth in the secret place of the most High shall abide under the shadow of the Almighty. I will say of the Lord, He is my refuge and my fortress: my God; in him will I trust.
+
+Psalm 91, verses 4 and 5.
+
+He shall cover thee with his feathers, and under his wings shalt thou trust: his truth shall be thy shield and buckler. Thou shalt not be afraid for the terror by night; nor for the arrow that flieth by day;
+
+Psalm 91, verse 11.
+
+For he shall give his angels charge over thee, to keep thee in all thy ways.
+
+Psalm 121.
+
+I will lift up mine eyes unto the hills, from whence cometh my help. My help cometh from the Lord, which made heaven and earth. He will not suffer thy foot to be moved: he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep. The Lord is thy keeper: the Lord is thy shade upon thy right hand. The sun shall not smite thee by day, nor the moon by night. The Lord shall preserve thee from all evil: he shall preserve thy soul. The Lord shall preserve thy going out and thy coming in from this time forth, and even for evermore.
+
+Matthew 11, verse 28.
+
+Come unto me, all ye that labour and are heavy laden, and I will give you rest.
+
+John 14, verse 27.
+
+Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.
+
+Isaiah 26, verse 3.
+
+Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.
+
+Psalm 116, verse 7.
+
+Return unto thy rest, O my soul; for the Lord hath dealt bountifully with thee.
+
+Psalm 46, verse 10.
+
+Be still, and know that I am God: I will be exalted among the heathen, I will be exalted in the earth.
+
+Psalm 3, verse 5.
+
+I laid me down and slept; I awaked; for the Lord sustained me.
+
+Proverbs 3, verse 24.
+
+When thou liest down, thou shalt not be afraid: yea, thou shalt lie down, and thy sleep shall be sweet.
+
+Psalm 4, verse 8.
+
+I will both lay me down in peace, and sleep: for thou, Lord, only makest me dwell in safety.
+
+Numbers 6, verses 24 to 26.
+
+The Lord bless thee, and keep thee: The Lord make his face shine upon thee, and be gracious unto thee: The Lord lift up his countenance upon thee, and give thee peace.
+
+Sleep well, beloved. You are held. You are kept. You are loved.
