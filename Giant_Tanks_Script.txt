@@ -1,0 +1,91 @@
+In the summer of 1944, at a test ground in southern Germany, engineers started the engine of the heaviest tank ever built. It weighed one hundred and eighty-eight tonnes, about as much as three of the tanks fighting on the front lines at the time. Its gun could destroy any enemy tank in the world. Its armour was so thick that almost nothing could get through it.
+
+Its name was Maus. Mouse. And it was never sent into battle.
+
+Because the Maus was not defeated by enemy guns. It was defeated by physics. And it was not the first giant tank to lose that fight, or the last.
+
+This is the story of why giant tanks never worked, from a Russian machine with wheels taller than a house to a German design that weighed a thousand tonnes. Because every time a tank grew bigger to solve one problem, it created a bigger one.
+
+We spent months researching and rebuilding every one of these machines in 3D, from the first tanks of 1915 to the main battle tanks of today.
+
+The first giant arrived before the tank even had a name. In 1915, in Russia, an engineer named Nikolai Lebedenko built a machine shaped like an enormous tricycle. Its two front wheels were about nine metres tall, as high as a three-storey building. The idea was simple. A wheel that big could roll over trenches, ditches and walls.
+
+It weighed around forty tonnes, and it became known as the Tsar Tank.
+
+But its small rear wheel carried a huge share of the weight. During its first test, near Moscow, that rear wheel sank into soft ground and stuck. Its engines could not pull it free.
+
+The Tsar Tank never moved again. It sat in the forest where it stopped for years, until it was finally broken up for scrap.
+
+Size alone had failed. The ground beneath it decided.
+
+The British took a different approach. Instead of giant wheels, they wrapped the whole body of their machine in a continuous track, a belt of steel plates that spread its weight across a long strip of ground. Its long, rhomboid shape let it climb out of a trench and roll across barbed wire.
+
+On the 15th of September, 1916, at the Somme, the Mark I tank went into battle for the first time.
+
+It weighed around twenty-eight tonnes and moved at walking pace. Inside, eight men worked in heat, noise and engine fumes. Steering alone took four of them, working the brakes and gears together. Many broke down before they reached the enemy. But the track worked. It spread the weight, and that was the secret every tank would follow.
+
+The Mark I also revealed the rule that would shape every tank after it. Armour is a trade. Every extra millimetre of steel has to be carried, by the engine, the tracks and the ground.
+
+Germany's answer, the A7V, carried a crew of eighteen. Only twenty were ever built.
+
+So engineers asked the obvious question. If a tank works, would a bigger tank work better?
+
+France answered with the Char 2C. Delivered in 1921, it was ten metres long, weighed around sixty-nine tonnes, and needed a crew of twelve. It is still the largest tank by size that any army has ever put into service. Its engines did not drive the tracks directly. They turned generators, and electric motors did the rest.
+
+But it was too heavy for most of the bridges in France. So it travelled by train, on special railway wagons, to wherever it might be needed.
+
+And that became its weakness. In June 1940, as German forces advanced, the Char 2Cs were being moved by rail when the line ahead was blocked. Trapped on their wagons, they could not fight. Their own crews set them on fire so the enemy could not take them.
+
+The biggest tanks in the French army never fired a shot in battle.
+
+Now comes the physics. Imagine making a tank twice as long, twice as wide and twice as tall. Its weight does not double. It increases eight times. But the area of track touching the ground only increases four times. So every square centimetre of ground beneath it has to carry twice the load.
+
+That pressure is what decides whether a tank rolls or sinks. And the bigger the tank, the faster it loses that battle.
+
+The engine faces the same problem. A tank needs a certain amount of horsepower for every tonne it carries. Make it heavier, and the engine has to grow too, and the fuel tanks, and the gearbox, and the suspension, which make it heavier still.
+
+The Soviet Union learned that lesson the hard way. Its T-35 of the 1930s carried five separate turrets, needed a crew of eleven, and weighed around forty-five tonnes. When Germany invaded in 1941, most of the T-35s lost were not destroyed by enemy fire. They broke down, and were abandoned by their crews.
+
+None of that stopped Germany from trying.
+
+By 1942, Germany's heavy tanks were already pushing the limits. The Tiger weighed around fifty-seven tonnes. It was so wide that before it could travel by train, its crew had to remove its outer wheels and fit narrow transport tracks, then swap them back on arrival.
+
+But Hitler wanted something heavier. So Ferdinand Porsche designed the Maus.
+
+Its front armour was more than two hundred millimetres thick, and its main gun measured 128 millimetres. At one hundred and eighty-eight tonnes, no gearbox of the time could handle its weight. So the Maus used its engine to drive an electric generator, which powered electric motors connected to the tracks. Even so, its top speed was about twenty kilometres an hour, and it carried roughly six horsepower for every tonne of weight.
+
+Almost no bridge in Europe could carry it. The designers' solution was to drive it straight through rivers, completely underwater, breathing through a tall snorkel, while a second Maus on the riverbank supplied it with electricity through a cable.
+
+A tank that needed another giant tank to cross a river.
+
+Only two prototypes were ever completed. In 1945, as Soviet forces approached the testing ground at Kummersdorf, both were damaged before they could be captured. The Soviets assembled one complete vehicle from the parts, and it still stands in a museum near Moscow today.
+
+And yet, the Maus was not the most extreme idea.
+
+In 1942, engineers at Krupp proposed a vehicle called the Landkreuzer P. 1000 Ratte, a land cruiser. It would weigh one thousand tonnes, measure around thirty-five metres long, and carry two 280 millimetre guns taken from a battleship turret. It would have rolled on several pairs of tracks, each wider than a modern tank, and needed a crew of dozens.
+
+Krupp even sketched a larger version, the P. 1500 Monster. At fifteen hundred tonnes, it was planned around the 800 millimetre Dora, a gun so large it normally travelled on its own railway.
+
+Its ground pressure might have been manageable, because its tracks were so enormous. But nothing else was. It would have crushed every road it drove on. It could never have crossed a bridge, or travelled by rail. And moving that slowly, it would have been one of the largest, easiest targets an enemy bomber had ever seen.
+
+In 1943, Germany's armaments minister, Albert Speer, cancelled it. Not one was ever built.
+
+Even the United States tried. In 1945, it built two prototypes of the T28, a ninety-five tonne vehicle with no turret and four sets of tracks. The outer pair had to be removed and towed behind it whenever it needed to travel by road or rail. The war ended before it was ever needed.
+
+The lesson was clear. Thicker steel was not the answer. The answer was to protect a tank without making it heavier.
+
+After the war, three ideas changed everything.
+
+The first was armour that worked smarter instead of heavier. In the 1960s and 70s, Britain developed composite armour, known as Chobham after the research centre where it was created, layers of ceramics, metals and other materials sandwiched together. Each layer stopped a threat in a different way, giving far more protection than a solid steel plate of the same weight.
+
+The second was power. Engines became far more powerful for their size. The American M1 Abrams, weighing around sixty-five tonnes, uses a gas turbine engine of fifteen hundred horsepower, giving it more than twenty horsepower for every tonne, almost four times the Maus. It can travel at more than sixty kilometres an hour, three times faster than the heaviest tank ever built.
+
+The third was a new way of thinking. Instead of separate light, medium and heavy tanks, armies built one balanced design that could do almost everything: the main battle tank. Heavy enough to survive. Light enough to cross a bridge, ride a train, and keep up with the army.
+
+Today, the world's main battle tanks weigh between about forty-five and seventy tonnes. Barely a third of the Maus. And not even a tenth of the Ratte.
+
+Tanks did not win by growing bigger. They won by growing smarter.
+
+From a giant tricycle stuck in a Russian forest to a thousand-tonne land cruiser that never left the drawing board, every giant tank in history ran into the same enemy. Not armour, and not guns. Weight.
+
+And that is one more chapter in the story of the machines that shaped warfare.
