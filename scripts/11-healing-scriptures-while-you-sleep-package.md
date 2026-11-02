@@ -79,3 +79,22 @@ Which promise spoke to you tonight? Type it below, and let's stand on it togethe
 
 ## Passages read (116, KJV)
 Exodus 15:26 · Psalm 103:1–13 · Psalm 107:19–20 · Jeremiah 17:14 · Jeremiah 30:17 · Isaiah 53:4–5 · Matthew 8:16–17 · Mark 5:34 · Psalm 147:3 · Proverbs 4:20–22 · Isaiah 58:8 · Isaiah 35:3–6 · Malachi 4:2 · 3 John 1:2 · Psalm 30:2 · Exodus 23:25 · Psalm 41:3 · Psalm 6:2 · Hosea 6:1 · Isaiah 57:18–19 · Matthew 8:2–3 · Matthew 9:35 · Matthew 14:14 · Acts 10:38 · 1 Peter 2:24 · Psalm 118:17 · Isaiah 26:3–4 · John 14:27 · Philippians 4:6–8 · Matthew 11:28–30 · 1 Peter 5:7 · Psalm 94:19 · 2 Timothy 1:7 · Isaiah 41:10 · Psalm 55:22 · Romans 15:13 · Colossians 3:15 · Psalm 46:10 · Psalm 29:11 · Isaiah 30:15 · Psalm 56:3–4 · Psalm 62:1–2 · Psalm 62:5–8 · Psalm 37:3–7 · Isaiah 32:17–18 · Matthew 6:34 · 2 Thessalonians 3:16 · Psalm 91 · Psalm 121 · Psalm 3:3–5 · Proverbs 3:24–26 · Psalm 34:7 · Deuteronomy 33:27 · 2 Thessalonians 3:3 · Isaiah 54:17 · Psalm 27:1–5 · Psalm 32:7 · Psalm 61:1–4 · Proverbs 18:10 · Nahum 1:7 · Psalm 125:2 · Psalm 34:1–8 · Psalm 127:1–2 · Psalm 4:8 · Isaiah 40:28–31 · Psalm 23 · 2 Corinthians 12:9 · Psalm 73:26 · Psalm 46:1–7 · Isaiah 43:1–2 · Psalm 18:1–2 · Psalm 28:7 · Isaiah 12:2 · Deuteronomy 31:6 · Joshua 1:9 · Philippians 4:13 · Habakkuk 3:19 · Psalm 34:17–19 · Matthew 5:4 · 2 Corinthians 1:3–4 · Psalm 30:5 · Lamentations 3:22–26 · Jeremiah 29:11–13 · Isaiah 43:18–19 · Psalm 42:11 · Isaiah 61:1–3 · Romans 8:28 · John 16:33 · Revelation 21:4 · Psalm 116:1–8 · John 14:1–3 · Psalm 56:8 · 2 Corinthians 4:16–18 · Zephaniah 3:17 · Jeremiah 31:3 · Deuteronomy 31:8 · Isaiah 49:15–16 · Psalm 139:1–12 · John 10:27–29 · Romans 8:31–39 · Psalm 16:11 · 1 John 4:16 · 1 John 4:18 · Ephesians 3:17–19 · Psalm 36:7 · Isaiah 54:10 · John 3:16 · Numbers 6:24–26 · Psalm 91:1–2 · Psalm 91:4–5 · Psalm 91:11 · Matthew 11:28 · Isaiah 26:3 · Psalm 116:7 · Psalm 3:5 · Proverbs 3:24
+
+## Actual recording: 45:02
+The voice read at about 153 words per minute, faster than the 120 planned, so the video is 45 minutes rather than an hour. Use the title without "1 Hour" and these chapters.
+
+**Title:** Healing Scriptures While You Sleep | God's Promises for Healing, Peace & Protection (KJV)
+
+**Chapters (45:02 recording):**
+```
+0:00 Welcome and opening prayer
+1:31 The Lord who heals
+9:10 Peace for your mind
+14:58 Protection through the night: Psalm 91 and Psalm 121
+22:49 Strength for the weary: Psalm 23 and Isaiah 40
+27:56 Comfort for the broken
+34:19 His love and his presence
+40:12 The blessing
+41:06 Softly into sleep
+```
+In the tags, replace "1 hour bible verses" with "bible verses while you sleep".
