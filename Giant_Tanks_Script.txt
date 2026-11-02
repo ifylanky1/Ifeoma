@@ -62,13 +62,13 @@ Only two prototypes were ever completed. In 1945, as Soviet forces approached th
 
 And yet, the Maus was not the most extreme idea.
 
-In 1942, engineers at Krupp proposed a vehicle called the Landkreuzer P. 1000 Ratte, a land cruiser. It would weigh one thousand tonnes, measure around thirty-five metres long, and carry two 280 millimetre guns taken from a battleship turret. It would have rolled on several pairs of tracks, each wider than a modern tank, and needed a crew of dozens.
-
-Krupp even sketched a larger version, the P. 1500 Monster. At fifteen hundred tonnes, it was planned around the 800 millimetre Dora, a gun so large it normally travelled on its own railway.
+In 1942, engineers at Krupp proposed a vehicle called the Landkreuzer P. 1000 Ratte, a land cruiser. It would weigh one thousand tonnes, measure around thirty-five metres long, and carry two 280 millimetre guns taken from a battleship turret. It would have rolled on six enormous tracks, three on each side, and needed a crew of dozens.
 
 Its ground pressure might have been manageable, because its tracks were so enormous. But nothing else was. It would have crushed every road it drove on. It could never have crossed a bridge, or travelled by rail. And moving that slowly, it would have been one of the largest, easiest targets an enemy bomber had ever seen.
 
 In 1943, Germany's armaments minister, Albert Speer, cancelled it. Not one was ever built.
+
+Krupp even sketched a larger version, the P. 1500 Monster. At fifteen hundred tonnes, it was planned around the 800 millimetre Dora, a gun so large it normally travelled on its own railway.
 
 Even the United States tried. In 1945, it built two prototypes of the T28, a ninety-five tonne vehicle with no turret and four sets of tracks. The outer pair had to be removed and towed behind it whenever it needed to travel by road or rail. The war ended before it was ever needed.
 
@@ -82,7 +82,7 @@ The second was power. Engines became far more powerful for their size. The Ameri
 
 The third was a new way of thinking. Instead of separate light, medium and heavy tanks, armies built one balanced design that could do almost everything: the main battle tank. Heavy enough to survive. Light enough to cross a bridge, ride a train, and keep up with the army.
 
-Today, the world's main battle tanks weigh between about forty-five and seventy tonnes. Barely a third of the Maus. And not even a tenth of the Ratte.
+Today, the world's main battle tanks weigh between about forty and seventy tonnes. Around a third of the Maus, at most. And not even a tenth of the Ratte.
 
 Tanks did not win by growing bigger. They won by growing smarter.
 
