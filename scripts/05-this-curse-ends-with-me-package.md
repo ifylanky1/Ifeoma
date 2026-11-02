@@ -49,10 +49,10 @@ Type "This curse ends with me." in the comments as your declaration of faith.
 ### Chapters (estimated at 140 words per minute; adjust to your recording)
 ```
 0:00 Tonight
-1:47 The nightly watch
+1:47 The testimony
 4:43 The breaker
 7:18 The covering
-10:02 The pattern i was born into
+10:02 The pattern I was born into
 12:21 Standing in the gap
 14:39 The curse is broken
 16:41 Addictions and destructive habits
@@ -83,4 +83,4 @@ Type this as your declaration of faith: **This curse ends with me.** 🔥🙏 Th
 - Export from the CapCut desktop app.
 
 ## Scripture list (19 passages, KJV)
-Galatians 3:13 · I Chronicles 4:9–10 · Exodus 20:5–6 · Deuteronomy 7:9 · Lamentations 5:7 · Ezekiel 18:20 · Nehemiah 1:6 · Romans 8:2 · Isaiah 61:3 · Isaiah 61:4 · 2 Corinthians 5:17 · John 1:12–13 · Psalm 112:1–2 · Proverbs 20:7 · Acts 2:39 · Psalm 16:6 · Galatians 3:14 · Psalm 103:17 · Psalm 4:8
+Galatians 3:13 · 1 Chronicles 4:9–10 · Exodus 20:5–6 · Deuteronomy 7:9 · Lamentations 5:7 · Ezekiel 18:20 · Nehemiah 1:6 · Romans 8:2 · Isaiah 61:3 · Isaiah 61:4 · 2 Corinthians 5:17 · John 1:12–13 · Psalm 112:1–2 · Proverbs 20:7 · Acts 2:39 · Psalm 16:6 · Galatians 3:14 · Psalm 103:17 · Psalm 4:8
